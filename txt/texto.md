@@ -18,11 +18,17 @@ En el banco de pruebas de Placencia
 ## 1873 Estampa 5: Amadeo de Saboya inaugura la exposición universal
    de San Sebastián.
 
-## 1895 Estampa 6: Inauguración del orbe y ferrocarril aéreo
+## 1893 Estampa 6: La Concha iluminada con bombillas de filamento de wolframio
+
+
+## 1895 Estampa 7: Inauguración del orbe y ferrocarril aéreo
 
 de la
    isla de Santa Clara. 
 
-## 1905 Estampa 7: El lendakari Serafín Baroja inaugura la central de mareas
+## 1901 Estampa 8: El rey Manuel Filiberto salvado por la Coraza de Vergara
+   
+## 1905 Estampa 9: El lehendakari Serafín Baroja visita la central de mareas
+
 
 
