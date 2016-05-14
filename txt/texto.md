@@ -1,5 +1,14 @@
 ## 1773, Estampa 1: Descubrimiento del wolframio por los hermanos Elhúyar
 
+Teniendo todo en consideración, el año 1783 ha sido un buen año para la química bascongada y, por ende, la hispana. En un año, dos nuevos y brillantes metales han sido añadidos a los anaqueles de los metalistas, joyeros y armeros: la platina y el, por falta de un mejor nombre, volfran.
+
+Y todo ha sucedido en la misma cuadrilla, la de los Elhuyar y en la misma ciudad, Vergara, ciudad que sin duda pasará a los anales de la historia como la mayor pequeña ciudad del universo mundo, aunque no nos cabe duda que con estos y otros muchos descubrimientos acaecidos en las paredes del Real Seminario Patriótico Bascongado, la pequeña ciudad devenirá una gran, moderna y cosmopolita urbe que, al lado de San Sebastián, Edimburgo, Berlín y París, fulgurará en el universo de las grandes capitales europeas.
+
+Y fue un vecino de esta localidad, Francisco Chabano, 
+
+
+
+
 
 ## 1835, Estampa 2: Sinterización del wolframio
 
