@@ -58,7 +58,7 @@ lavado posteriormente con la shalda local, por no quedar el mal gusto
 que suponemos que tendrán estas piedras en el paladar más de lo
 conveniente, se ha obtenido todo un metal que, para mayor confusión de
 cristianos, se ha llamado de la misma forma que la piedra de la que se
-obtiene, volfram, cuando hari-zorrotz habría sido un nombre más adecuado
+obtiene, volfram, cuando harri-astun habría sido un nombre más adecuado
 y más patriótico, si bien probablemente más duro en lenguas castizas. 
 
 Y una vez destilado, es maravilla conocer que, al igual que nuestros
@@ -77,7 +77,7 @@ tropas y marinería y salvaguarda de sus preciadas vidas.
 
 
 
-## 1835, Estampa 2: Sinterización del wolframio
+## 1835, Estampa 2: Sinteriazción del wolframio
 
 Desde que en el año de nuestro señor de 1783 el Seminario Patriótico
 de Vergara dio a la humanidad dos nuevos metales, dos, desconocidos
