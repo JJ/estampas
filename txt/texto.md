@@ -30,5 +30,11 @@ de la
    
 ## 1905 Estampa 9: El lehendakari Serafín Baroja visita la central de mareas
 
+## 1911 Estampa 10: Llegada del primer dirigible de línea regular San Sebastián-Santa Isabel
+
+Dirigibles Astra-Torres, 48 horas hasta Santa Isabel. El atracadero de
+Dirigibles se construye en el monte Igeldo por el conde de Motrico. 
+
+
 
 
