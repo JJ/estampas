@@ -73,17 +73,24 @@ tropas y marinería y salvaguarda de sus preciadas vidas.
 
 
 
-
-
-
-
-## 1835, Estampa 2: Sinteriazción del wolframio
+## 1835, Estampa 2: Sinterización del wolframio
 
 Desde que en el año de nuestro señor de 1783 el Seminario Patriótico
 de Vergara dio a la humanidad dos nuevos metales, dos, desconocidos
-hasta entonces o confundidos...
-Por la cátedra de Mineralogía y Metalurgia de la Universidad de
-Provincia de Guipúzcoa
+hasta entonces o confundidos con hierros o ferrallas o menas diversas,
+Bergara sigue fulgurando en el firmamento de las capitales europeas,
+con todo el valle del Deba orbitando a su derredor como si de un
+sistema planetario se tratara.
+
+Y eso ha sucedido porque el rey nuestro señor Carlos el Tercero de su
+nombre, monarca que lo fue por aquella época y que todo patriota
+extraña y reza a Nuestro Señor para que lo tenga en su gloria,
+inspirado quizás por el lema de la Sociedad Bascongada, "De tres,
+uno", decidió mantener a la cuadrilla de los Elhúyan y el eminente
+Chavano juntos en el entonces seminario y ahora Universidad de la
+Tierra de Guipúzcoa
+
+Por la cátedra de Mineralogía y Metalurgia de la 
 
 ## 1862, Estampa 3: Inauguración de la Escuela Especial de Electricidad
 
