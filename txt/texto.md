@@ -4,8 +4,9 @@ Teniendo todo en consideración, el año 1783 ha sido un buen año para la quím
 
 Y todo ha sucedido en la misma cuadrilla, la de los Elhuyar y en la misma ciudad, Vergara, ciudad que sin duda pasará a los anales de la historia como la mayor pequeña ciudad del universo mundo, aunque no nos cabe duda que con estos y otros muchos descubrimientos acaecidos en las paredes del Real Seminario Patriótico Bascongado, la pequeña ciudad devenirá una gran, moderna y cosmopolita urbe que, al lado de San Sebastián, Edimburgo, Berlín y París, fulgurará en el universo de las grandes capitales europeas.
 
-"De tres, uno", es el lema de esta sociedad patriótica y son tres las estrellas que iluminan el firmamento filosófico: Francisco Chabano, 
-Y fue un vecino de esta localidad, Francisco Chabano, 
+"De tres, uno", es el lema de esta sociedad patriótica y son tres las estrellas que iluminan el firmamento filosófico: Francisco Chavano y los hermanos Fausto y Juan José Elhúyar, todos ellos nacidos fuera de este País pero tan patriotas como si se hubieran criado al seno ubérrimo de nuestro país bascongado en el que, de la misma manera, sí fueron nacidos los dos segundos. Y "las tres, una", las tres ciencias, la mineralogía, la química y la metalurgia, las que, siguiendo el aforismo que anima los trabajos de la sociedad bascongada, se han unido para originar los dos nuevos metales que Dios dio a la Humanidad, pero que a modo de profetas del progreso y de la Ciencia, Francisco, Juan José y Fausto han revelado a la misma. 
+
+
 
 
 
