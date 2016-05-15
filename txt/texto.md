@@ -79,6 +79,9 @@ tropas y marinería y salvaguarda de sus preciadas vidas.
 
 ## 1835, Estampa 2: Sinterización del wolframio
 
+Desde que en el año de nuestro señor de 1783 el Seminario Patriótico
+de Vergara dio a la humanidad dos nuevos metales, dos, desconocidos
+hasta entonces o confundidos...
 Por la cátedra de Mineralogía y Metalurgia de la Universidad de
 Provincia de Guipúzcoa
 
