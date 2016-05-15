@@ -105,7 +105,12 @@ bascongadas, donde continuó enseñando y siendo amirado por propios y
 extraños hasta su muerte en 1796 debida, posiblemente, a la manía que
 poseía de degustar todas las sustancias que salían de sus crisoles
 zamoranos, y contra las que su ama y también su hermano no dejaron
-nunca de advertirle. 
+nunca de advertirle. Tuvo una corta, pero fructífera vida, trabajando
+hasta el final en el Laboratorio de Nuevos Metales cuyas columnas se
+levantaron tras los descubrimientos de platina y volframio y que
+dirigió Chavano hasta volver a su país de origen, una vez que tal país
+y el nuestro decidieron mandar a sus hijos a matarse los unos a los
+otros.
 
 Fue en esa cátedra donde, a petición de su majestad Fernando el Séptimo,
 cuya vida y la de su esposa guarde Dios Nuestro Señor muchos años, se
