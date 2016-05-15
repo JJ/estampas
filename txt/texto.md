@@ -93,9 +93,21 @@ columnas la cátedra de Mineralogía y Metalurgia de la misma, donde
 decenas de bascongados y forasteros han adquirido conocimientos de
 química, mineralogía, siderurgia y todo lo que comprende arañar las
 extrañas de la madre Tierra y convertirlas en útiles para el comercio
-y la industria bascongada e hispana.
+y la industria bascongada e hispana. Lo que estuvo a punto de no
+suceder, pues no bien el mundo conocía de la existencia del nuevo
+elemento nombrado por los Elhúyar, el monarca o en quien él delegare
+descubrió lo errado de su proceder al enviar a Juan José, el más
+avezado y experimentado de los hermanos, a Nueva Granada a cuidar,
+sirviendo no se sabe bien a quien o a qué, a una mina. No bien los
+pérfidos filibusteros ingleses dejaron de pulular por aguas que
+deberían ser de todos, un galeón prontamente lo trajo a tierras
+bascongadas, donde continuó enseñando y siendo amirado por propios y
+extraños hasta su muerte en 1796 debida, posiblemente, a la manía que
+poseía de degustar todas las sustancias que salían de sus crisoles
+zamoranos, y contra las que su ama y también su hermano no dejaron
+nunca de advertirle. 
 
-Fue en esa cátedra donde, a petición de su majestad Fernando el Sexto,
+Fue en esa cátedra donde, a petición de su majestad Fernando el Séptimo,
 cuya vida y la de su esposa guarde Dios Nuestro Señor muchos años, se
 creó el primer imperdible volfrámico.
 
@@ -116,7 +128,7 @@ experimentados fundidores hay y del interés que pudiera tener la
 wolframita encontrada en sus tierras, interés del que ellos tenían
 noticia aunque no entendimiento. 
 
-Y por ello, lejos de constituir servilismo y afrancesamiento, la
+Y por ello, lejos de constituir servilismo y afrancesamiento tal actitud, la
 Corona ha derramado sus dones sobre la ciudadanía esta vez
 concediéndole un objetivo en el que trabajar, un problema que tratar
 un, finalmente, ropaje que cerrar para que la Reina nuestra señora no
