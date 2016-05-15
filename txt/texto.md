@@ -58,7 +58,18 @@ lavado posteriormente con la shalda local, por no quedar el mal gusto
 que suponemos que tendrán estas piedras en el paladar más de lo
 conveniente, se ha obtenido todo un metal que, para mayor confusión de
 cristianos, se ha llamado de la misma forma que la piedra de la que se
-obtiene, volfram. 
+obtiene, volfram, cuando hari-zorrotz habría sido un nombre más adecuado
+y más patriótico, si bien probablemente más duro en lenguas castizas. 
+
+Y una vez destilado, es maravilla conocer que, al igual que nuestros
+vecinos Elhuyar al formar cuadrilla con nuestro nuevo vecino Chavano
+han formado algo mejor y más fuerte que por separado, este volfram
+mezcla con el hierro para formar algo que es más duro que el hierro
+colado. Algo de lo que, sin duda, habrá tomado buena nota el rey
+nuestro señor mecenas del Seminario Patriótico de Bergara, cuya vida
+guarde Dios muchos años, para mejora y aprovisionamiento de la
+fusilería y artillería de nuestras bravas
+tropas y marinería y salvaguarda de sus preciadas vidas. 
 
 
 
