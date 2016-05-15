@@ -86,11 +86,22 @@ Y eso ha sucedido porque el rey nuestro señor Carlos el Tercero de su
 nombre, monarca que lo fue por aquella época y que todo patriota
 extraña y reza a Nuestro Señor para que lo tenga en su gloria,
 inspirado quizás por el lema de la Sociedad Bascongada, "De tres,
-uno", decidió mantener a la cuadrilla de los Elhúyan y el eminente
+uno", decidió mantener a la cuadrilla de los ElhúyaR y el eminente
 Chavano juntos en el entonces seminario y ahora Universidad de la
-Tierra de Guipúzcoa
+Tierra de Guipúzcoa, y dotó la plata necesaria para que levantara
+columnas la cátedra de Mineralogía y Metalurgia de la misma, donde
+decenas de bascongados y forasteros han adquirido conocimientos de
+química, mineralogía, siderurgia y todo lo que comprende arañar las
+extrañas de la madre Tierra y convertirlas en útiles para el comercio
+y la industria bascongada e hispana.
 
-Por la cátedra de Mineralogía y Metalurgia de la 
+Fue en esa cátedra donde, a petición de su majestad Fernando el Sexto,
+cuya vida y la de su esposa guarde Dios Nuestro Señor muchos años, se
+creó el primer imperdible volfrámico.
+
+Y no fue tarea fácil, porque los mismos hermanos Elhúyar, en el
+descubrimiento del que es ahora enseña y guía de los quehaceres de la
+industria del valle del Deba, ya dijeron 
 
 ## 1862, Estampa 3: Inauguración de la Escuela Especial de Electricidad
 
