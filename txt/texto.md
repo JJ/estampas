@@ -101,7 +101,36 @@ creó el primer imperdible volfrámico.
 
 Y no fue tarea fácil, porque los mismos hermanos Elhúyar, en el
 descubrimiento del que es ahora enseña y guía de los quehaceres de la
-industria del valle del Deba, ya dijeron 
+industria del valle del Deba, ya mentaron la dificultad con la que se
+fundía el nuevo metal, mucho mayor que la de la alabandina, pero la
+buena ligadura que se formaba con hierro crudo o colado y lo frágil y
+quebradizo que, al amalgamarse con el antimonio, se volvía.
+
+Y es una dificultad que bien conocen los señores ferrones vizcaínos y
+guipuzcoanos, que diferentes en habilidades y fuerza, todos a una
+siempre han llevado sus carretas cargadas de volframita a la cátedra
+para que hagan con ella lo que les plazca, siendo ellos incapaces de
+fundirlo y malearlo, tras serles entregado por mineros de Galicia y
+León, sabedores de que en nuestra tierra es donde mejores y más
+experimentados fundidores hay y del interés que pudiera tener la
+wolframita encontrada en sus tierras, interés del que ellos tenían
+noticia aunque no entendimiento. 
+
+Y por ello, lejos de constituir servilismo y afrancesamiento, la
+Corona ha derramado sus dones sobre la ciudadanía esta vez
+concediéndole un objetivo en el que trabajar, un problema que tratar
+un, finalmente, ropaje que cerrar para que la Reina nuestra señora no
+muestre sus dones más que en el momento y lugar que lo considere
+necesario y pertinente.
+
+Y es que los imperdibles de latón e hierro son débiles, quebradizos y
+con una color que desmerece las galas y miriñaques de nuestra
+monarca. Y es que se buscaba una fíbula que fuera, a la vez que fina,
+resistente y duradera. Y no fueron otros que los actuales y meritorios
+catedráticos los que se pusieron a ello con toda la ciencia e
+industria de la que son capaces.
+
+Y fue fácil la elección del volframio. Gracias 
 
 ## 1862, Estampa 3: Inauguración de la Escuela Especial de Electricidad
 
