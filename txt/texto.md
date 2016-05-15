@@ -77,7 +77,7 @@ tropas y marinería y salvaguarda de sus preciadas vidas.
 
 Desde que en el año de nuestro señor de 1783 el Seminario Patriótico
 de Vergara dio a la humanidad dos nuevos metales, dos, desconocidos
-hasta entonces o confundidos con hierros o ferrallas o menas diversas,
+hasta entonces o confundidos con hierros o ferrayas o menas diversas,
 Bergara sigue fulgurando en el firmamento de las capitales europeas,
 con todo el valle del Deba orbitando a su derredor como si de un
 sistema planetario se tratara.
@@ -86,7 +86,7 @@ Y eso ha sucedido porque el rey nuestro señor Carlos el Tercero de su
 nombre, monarca que lo fue por aquella época y que todo patriota
 extraña y reza a Nuestro Señor para que lo tenga en su gloria,
 inspirado quizás por el lema de la Sociedad Bascongada, "De tres,
-uno", decidió mantener a la cuadrilla de los ElhúyaR y el eminente
+uno", decidió mantener a la cuadrilla de los Elhúyar y el eminente
 Chavano juntos en el entonces seminario y ahora Universidad de la
 Tierra de Guipúzcoa, y dotó la plata necesaria para que levantara
 columnas la cátedra de Mineralogía y Metalurgia de la misma, donde
