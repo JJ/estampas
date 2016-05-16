@@ -138,7 +138,8 @@ noticia aunque no entendimiento.
 Y por ello, lejos de constituir servilismo y afrancesamiento tal actitud, la
 Corona ha derramado sus dones sobre la ciudadanía esta vez
 concediéndole un objetivo en el que trabajar, un problema que tratar
-un, finalmente, ropaje que cerrar para que la Reina nuestra señora no
+un, finalmente, ropaje que cerrar para que la Reina nuestra señora, o su
+recientemente nacida y augusta Infanta, no
 muestre sus dones más que en el momento y lugar que lo considere
 necesario y pertinente.
 
@@ -184,7 +185,23 @@ conozcamos y podamos contarlo, en estas páginas.
 
 ## 1862, Estampa 3: Inauguración de la Escuela Especial de Electricidad
 
-<!-- y pasó una guerra -- >
+Y este mensaje acaba de llegar: en el momento que empiezo a escribir
+estas líneas se ha inaugurado la Escuela Especial de Electridad en
+Azkoitia, uno de los vértices del triángulo arriastun vascongado.
+
+Porque las ciencias adelantan que es una barbaridad y en nuestra
+redacción ya somos capaces de enterarnos, quizás no de conocer, lo que
+ocurre en el ancho mundo en el mismo momento en el que ocurre. El
+telégrafo de Salvá no nos salvó de la invasión gabacha, si nos permiten
+esta pequeña chanza, pero sí nos salvó de males mayores, de las
+insurrecciones facciosas que salpicaban nuestros caseríos y valles y
+que, no bien se producían, eran podadas en agraz por nuestro eficaz
+ejército territorial. Nos cabe duda de que si a un solo invento, a uno
+solo, podemos agradecerle la paz y prosperidad que hemos experimentado
+en estos últimos veinte años bajo la dirección de la Regente y
+posteriormente de su hija, nuestra monarca, ha sido a la chispa que
+transmite y que lleva la razón y la libertad a donde más se la
+necesita. 
 
 Ampliando el Instituto Provincial de Guipúzcoa con unas instalaciones
 en San Sebastián
