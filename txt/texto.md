@@ -114,7 +114,8 @@ y el nuestro decidieron mandar a sus hijos a matarse los unos a los
 otros.
 
 Fue en esa cátedra donde, a petición de su majestad Fernando el Séptimo,
-cuya vida y la de su esposa guarde Dios Nuestro Señor muchos años, se
+cuya vida y la de su esposa guarde Dios Nuestro Señor muchos años o
+los que tenga menester, se
 creó el primer imperdible volfrámico.
 
 Y no fue tarea fácil, porque los mismos hermanos Elhúyar, en el
@@ -182,6 +183,8 @@ conozcamos y podamos contarlo, en estas páginas.
 
 
 ## 1862, Estampa 3: Inauguración de la Escuela Especial de Electricidad
+
+<!-- y pasó una guerra -- >
 
 Ampliando el Instituto Provincial de Guipúzcoa con unas instalaciones
 en San Sebastián
