@@ -207,16 +207,31 @@ Como conocimos, casi al instante, las gratas noticias de los
 descubrimientos de menas de wolframita en nuestras posesiones de
 ultramar en la Conchinchina, presencia confirmada por los eminentes
 eminentes Eguía y Fernández de la cátedra de Mineralogía de la
-Universidad en Vergara, menas que alimentarán a nuestros volframones
+Universidad en Vergara, menas que alimentarán a nuestros señores volframones
 por años sin término y con ellos mantendrán la paz y aumentarán la
 prosperidad de vecinos al norte y al sur del Ebro y al este y el oeste
 del Deba. 
 
-
-Ampliando el Instituto Provincial de Guipúzcoa con unas instalaciones
+Y este nuevo edificio viene ampliando el Instituto Provincial de Guipúzcoa con unas instalaciones
 en San Sebastián se añade otro vértice al triángulo arriastun vascongado, el
 triángulo de laboratorios, institutos, fundiciones, minas, que tienen
-en el volframio su centro y su razón de ser.
+en el volframio su centro y su razón de ser, volframio que, lejos de
+ser curiosidad y materia para fruslerías como imperdibles y agujas de
+punto, parece ser, según cuentan las malas lenguas, que es el alma de
+los cañones que nos dieron gloria en la misma Conchinchina, en Guinea
+y en doquiera que la estrategia y táctica ha decidido emplearlos,
+cañones salidos del triángulo, quizás un poco deformado por tanto
+ajetreo, del volframio, de la misma Placencia de las Armas y de sus
+alrededores, así que tengan o no el alma de volframio, su alma de
+cañón ha sido fraguada en el triángulo del volframio que ya llaman los
+paisanos arriastun, así que tanto da que da lo mismo.
+
+En meses tendremos la primera promoción de egresados de este instituto
+que, desde el corazón de Guipúzcoa, se esparcirán por el ancho mundo
+mostrando su industriosidad y su buen trabajo, lan onari, cuando veáis
+una máquina herramienta movida por la electricidad, un tendido
+telegráfico erecto y orgulloso, en cualquier parte del mundo, podréis
+decir, ufanos, "Buen trabajo de un guipuzcoano es".
 
 ## 1866 Estampa 4: Se prueban las primeras balas con núcleo de tungsteno
 
