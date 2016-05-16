@@ -101,8 +101,9 @@ avezado y experimentado de los hermanos, a Nueva Granada a cuidar,
 sirviendo no se sabe bien a quien o a qué, a una mina. No bien los
 pérfidos filibusteros ingleses dejaron de pulular por aguas que
 deberían ser de todos, un galeón prontamente lo trajo a tierras
-bascongadas, donde continuó enseñando y siendo amirado por propios y
-extraños hasta su muerte en 1796 debida, posiblemente, a la manía que
+bascongadas, donde continuó enseñando y siendo admirado por propios y
+extraños hasta su muerte en 1796 debida, posiblemente, a la inveterada
+manía que
 poseía de degustar todas las sustancias que salían de sus crisoles
 zamoranos, y contra las que su ama y también su hermano no dejaron
 nunca de advertirle. Tuvo una corta, pero fructífera vida, trabajando
@@ -147,7 +148,38 @@ resistente y duradera. Y no fueron otros que los actuales y meritorios
 catedráticos los que se pusieron a ello con toda la ciencia e
 industria de la que son capaces.
 
-Y fue fácil la elección del volframio. Gracias 
+Y fue fácil la elección del volframio, una vez descartado el astunium,
+por ninguna razón otra que, al haber sido descubierto, en el lugar,
+eso sí, por un francés, el licenciado señor Proust, que el señor lo
+tenga en su gloria, tras fallecer, rodeado sus amigos Elhúyar y
+Chavano, aquí, en el lugar, enterrado como está no lejos de sus
+crisoles y matraces, en Bergara.
+
+Y podría haber sido el platino, que, en siendo también francés, tiene
+en sus orígenes la buena mano del difunto Elhúyar, aunque ya se usó tiempo ha para muchos
+menesteres religiosos y seglares, y habiendo vuelto nuestro amigo y
+nunca bien ponderado Chavano a sus cabales y también al lugar, tras haber
+pasado toda la guerra contra sus compatriotas en lugar desconocido, lo
+que le libró, quizás, de represalia o quién sabe si de otras cuitas,
+pero no habría sido un reto, así que los pupilos de la cátedra, los
+Munibe, Elhúyar, Argaiz, Prin, Zabaleta, se pusieron a la tarea de
+crear uno, quizás media docena, de imperdibles para nuestra querida
+Reina.
+
+Y bien que se pusieron, y es prodigio que merece el ensalzamiento, por
+hilar tan fino el volframio, que pareciera que hubieran creado un
+ovillo volfrámico, porque, según cuentan más adelante en los Extractos
+de la Real Sociedad, crearon imperdibles que también son inexpugnables
+al orín, irrompibles y dignos, quizás, de una causa mejor que el
+simple ataharre de vestiduras, dignas y elevadas por regias, pero no
+por vestiduras.
+
+Y no nos cabe la menor duda de que la nueva cuadrilla de
+metalurgistas, estos nuevos caballeros metálicos, estarán ya
+elucubrando cuáles podrán ser esas misiones inéditas a las que podrán
+dedicarse y de las que daremos buena cuenta, en la medida que lo
+conozcamos y podamos contarlo, en estas páginas. 
+
 
 ## 1862, Estampa 3: Inauguración de la Escuela Especial de Electricidad
 
