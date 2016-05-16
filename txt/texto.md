@@ -212,7 +212,7 @@ necesita.
 Como conocimos, casi al instante, las gratas noticias de los
 descubrimientos de menas de wolframita en nuestras posesiones de
 ultramar en la Conchinchina, presencia confirmada por los eminentes
-eminentes Eguía y Fernández de la cátedra de Mineralogía de la
+y doctos Eguía y Fernández de la cátedra de Mineralogía de la
 Universidad en Vergara, menas que alimentarán a nuestros señores volframones
 por años sin término y con ellos mantendrán la paz y aumentarán la
 prosperidad de vecinos al norte y al sur del Ebro y al este y el oeste
@@ -246,7 +246,32 @@ considerada una de las bellas artes, sí es un arte aplicada, hay
 precisamente que aplicarse en hacerlo más y mejor que el que se
 encuentra enfrente con parecidas y aviesas intenciones.
 
+Pero las reglas no las escribimos los vizcaínos ni el ser humano y, en
+estos tiempos más iluminados en los que nuevos aires de libertad
+soplan por todas las Españas gracias a la elevación al poder del
+Maestro Sublime Perfecto y también Excelentísimo Sr. Presidente del
+Consejo Juan Prim, que
+rige ahora con recta mano los destinos de nuestra patria, los
+vizcaínos y todo vecino de tierra de garbanzos tiene que ganarse la
+vida y la hacienda de alguna forma, aún a costa de crear artilugios
+que, eventualmente, acaben segando, quizás también salvando, vidas de
+otros hijos de la Naturaleza.
 
+Sirva esto como introito, o quizás disculpa, de la noticia que nos
+ocupa, que no es otra que la salida de la fábrica de Placencia de los
+primeros proyectiles especiales con su marchamo. Y decimos especiales
+aunque nadie ha sabido especificar su especialidad, pero sí que son
+capaces de penetrar chapas, corazas y cuanto obstáculo se ponga en su
+camino. En las mismas pruebas de la fábrica de Placencia, esta persona
+puede atestiguar que el hueco ocasionado en una pared de piedra fue
+como si de una culebrina hubiera sido disparada, cuando fue un vulgar
+fusil de la fábrica de Oviedo el que lo expulsó.
+
+Estando visados tales proyectiles por la fábrica, que ya realiza tal
+labor para muchas armerías de Portugal, de Francia y de la misma
+Bélgica, ya podrán ser vendidos y usados en todo el mundo, por lo que
+las fábricas de Ermua, Eibar y Elgoibar no darán abasto para
+proporcionar a la clientela lo que desean. 
 
 ## 1873 Estampa 5: Amadeo de Saboya inaugura la exposición universal
    de San Sebastián.
