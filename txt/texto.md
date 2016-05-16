@@ -175,7 +175,7 @@ al orín, irrompibles y dignos, quizás, de una causa mejor que el
 simple ataharre de vestiduras, dignas y elevadas por regias, pero no
 por vestiduras.
 
-Y es un logro que se añade a la indusria guipuzcoana, que ya dio al
+Y es un logro que se añade a la industria guipuzcoana, que ya dio al
 mundo el acero cementado desde el mismo lugar que comentamos, Bergara,
 fábrica del señor Zabalo de la que todavía, en nuestros días, sigue
 saliendo acero para España, Europa y el mismo Reino Unido. 
@@ -186,6 +186,8 @@ elucubrando cuáles podrán ser esas misiones inéditas a las que podrán
 dedicarse y de las que daremos buena cuenta, en la medida que lo
 conozcamos y podamos contarlo, en estas páginas. 
 
+Por eso, cuando os pregunten qué ha hecho España por Europa, sólo
+tenéis que contestar "Mi señor, ha hecho Guipúzcoa"
 
 ## 1862, Estampa 3: Inauguración de la Escuela Especial de Electricidad
 
