@@ -186,7 +186,7 @@ conozcamos y podamos contarlo, en estas páginas.
 ## 1862, Estampa 3: Inauguración de la Escuela Especial de Electricidad
 
 Y este mensaje acaba de llegar: en el momento que empiezo a escribir
-estas líneas se ha inaugurado la Escuela Especial de Electridad en
+estas líneas se ha inaugurado la Escuela Especial de Electricidad en
 Donosti.
 
 Porque las ciencias adelantan que es una barbaridad y en nuestra
@@ -214,7 +214,7 @@ del Deba.
 
 
 Ampliando el Instituto Provincial de Guipúzcoa con unas instalaciones
-en San Sebastián se añade otro vértice al triángulo arriastun vascongado, ei
+en San Sebastián se añade otro vértice al triángulo arriastun vascongado, el
 triángulo de laboratorios, institutos, fundiciones, minas, que tienen
 en el volframio su centro y su razón de ser.
 
