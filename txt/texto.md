@@ -241,7 +241,12 @@ decir, ufanos, "Buen trabajo de un guipuzcoano es".
 
 ## 1866 Estampa 4: Se prueban las primeras balas con núcleo de tungsteno
 
-En el banco de pruebas de Placencia
+En estos tiempos tenebrosos, en que el arte de matar, sin ser
+considerada una de las bellas artes, sí es un arte aplicada, hay
+precisamente que aplicarse en hacerlo más y mejor que el que se
+encuentra enfrente con parecidas y aviesas intenciones.
+
+
 
 ## 1873 Estampa 5: Amadeo de Saboya inaugura la exposición universal
    de San Sebastián.
