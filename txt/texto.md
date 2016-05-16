@@ -273,19 +273,20 @@ Bélgica, ya podrán ser vendidos y usados en todo el mundo, por lo que
 las fábricas de Ermua, Eibar y Elgoibar no darán abasto para
 proporcionar a la clientela lo que desean. 
 
-## 1873 Estampa 5: Amadeo de Saboya inaugura la exposición universal
-   de San Sebastián.
+## 1873 Estampa 5: Amadeo de Saboya inaugura la exposición universal de San Sebastián.
+
+Con un gran pabellón dedicado a los productos de las granjas de Guinea
+y los metales preciosos de Conchinchina. 
 
 ## 1893 Estampa 6: La Concha iluminada con bombillas de filamento de wolframio
 
+Fabricadas en la General Eléctrica en Bilbao. 
 
-## 1895 Estampa 7: Inauguración del orbe y ferrocarril aéreo
-
-de la
-   isla de Santa Clara. 
+## 1895 Estampa 7: Inauguración del orbe y ferrocarril aéreo de la isla de Santa Clara. 
 
 ## 1901 Estampa 8: El rey Manuel Filiberto salvado por la Coraza de Vergara
-   
+
+
 ## 1905 Estampa 9: El lehendakari Serafín Baroja visita la central de mareas
 
 ## 1911 Estampa 10: Llegada del primer dirigible de línea regular San Sebastián-Santa Isabel
