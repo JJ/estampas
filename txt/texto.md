@@ -187,7 +187,7 @@ conozcamos y podamos contarlo, en estas páginas.
 
 Y este mensaje acaba de llegar: en el momento que empiezo a escribir
 estas líneas se ha inaugurado la Escuela Especial de Electridad en
-Azkoitia, uno de los vértices del triángulo arriastun vascongado.
+Donosti.
 
 Porque las ciencias adelantan que es una barbaridad y en nuestra
 redacción ya somos capaces de enterarnos, quizás no de conocer, lo que
@@ -201,10 +201,22 @@ solo, podemos agradecerle la paz y prosperidad que hemos experimentado
 en estos últimos veinte años bajo la dirección de la Regente y
 posteriormente de su hija, nuestra monarca, ha sido a la chispa que
 transmite y que lleva la razón y la libertad a donde más se la
-necesita. 
+necesita.
+
+Como conocimos, casi al instante, las gratas noticias de los
+descubrimientos de menas de wolframita en nuestras posesiones de
+ultramar en la Conchinchina, presencia confirmada por los eminentes
+eminentes Eguía y Fernández de la cátedra de Mineralogía de la
+Universidad en Vergara, menas que alimentarán a nuestros volframones
+por años sin término y con ellos mantendrán la paz y aumentarán la
+prosperidad de vecinos al norte y al sur del Ebro y al este y el oeste
+del Deba. 
+
 
 Ampliando el Instituto Provincial de Guipúzcoa con unas instalaciones
-en San Sebastián
+en San Sebastián se añade otro vértice al triángulo arriastun vascongado, ei
+triángulo de laboratorios, institutos, fundiciones, minas, que tienen
+en el volframio su centro y su razón de ser.
 
 ## 1866 Estampa 4: Se prueban las primeras balas con núcleo de tungsteno
 
