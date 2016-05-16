@@ -72,12 +72,11 @@ fusilería y artillería de nuestras bravas
 tropas y marinería y salvaguarda de sus preciadas vidas. 
 
 
-
 ## 1832, Estampa 2: Sinterización del wolframio
 
 Desde que en el año de nuestro señor de 1783 el Seminario Patriótico
 de Vergara dio a la humanidad dos nuevos metales, dos, desconocidos
-hasta entonces o confundidos con hierros o ferrayas o menas diversas,
+hasta entonces o confundidos con hierros o quincallas o menas diversas,
 Bergara sigue fulgurando en el firmamento de las capitales europeas,
 con todo el valle del Deba orbitando a su derredor como si de un
 sistema planetario se tratara.
@@ -175,6 +174,11 @@ de la Real Sociedad, crearon imperdibles que también son inexpugnables
 al orín, irrompibles y dignos, quizás, de una causa mejor que el
 simple ataharre de vestiduras, dignas y elevadas por regias, pero no
 por vestiduras.
+
+Y es un logro que se añade a la indusria guipuzcoana, que ya dio al
+mundo el acero cementado desde el mismo lugar que comentamos, Bergara,
+fábrica del señor Zabalo de la que todavía, en nuestros días, sigue
+saliendo acero para España, Europa y el mismo Reino Unido. 
 
 Y no nos cabe la menor duda de que la nueva cuadrilla de
 metalurgistas, estos nuevos caballeros metálicos, estarán ya
