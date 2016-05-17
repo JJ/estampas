@@ -232,9 +232,16 @@ alrededores, así que tengan o no el alma de volframio, su alma de
 cañón ha sido fraguada en el triángulo del volframio que ya llaman los
 paisanos arriastun, así que tanto da que da lo mismo.
 
-En meses tendremos la primera promoción de egresados de este instituto
+En meses tendremos la primera promoción de egresados de este
+instituto, a los que podremos decir, como glosara nuestro compatriota Samaniego
+
+	...seguid, seguid la senda   
+	en que marcháis, guiados,   
+	a la luz de las ciencias,   
+	por profesores sabios.
+	
 que, desde el corazón de Guipúzcoa, se esparcirán por el ancho mundo
-mostrando su industriosidad y su buen trabajo, lan onari, cuando veáis
+mostrando su industriosidad y su buen trabajo, *lan onari*, cuando veáis
 una máquina herramienta movida por la electricidad, un tendido
 telegráfico erecto y orgulloso, en cualquier parte del mundo, podréis
 decir, ufanos, "Buen trabajo de un guipuzcoano es".
@@ -255,7 +262,34 @@ rige ahora con recta mano los destinos de nuestra patria, los
 vizcaínos y todo vecino de tierra de garbanzos tiene que ganarse la
 vida y la hacienda de alguna forma, aún a costa de crear artilugios
 que, eventualmente, acaben segando, quizás también salvando, vidas de
-otros hijos de la Naturaleza.
+otros hijos de la Naturaleza. Como dijo nuestro sabio Valentín de
+Foronda, citando a "aquél autor francés":
+
+	... que era cosa asombrosa que el arte de destruir a los hombres
+    ensalce, y que se quiera suponer que envilece o degrada aquel arte
+    que los conserva.
+
+Y él sigue diciendo
+
+	¿Será más honroso tener un gran número de criados inútiles al
+    estado, como cocheros, lacayos, peluqueros &c., o una fábrica en
+    que se proporcione alimiento a muchas familias?
+
+y continúa, como es bien sabido, afirmando que
+
+	... el país bascongado es pobre en estos quatro bienes
+    [territoriales, ganado, pesca y manufacturas] y demasiado rico en
+    población [...] y su ha de haber consiste en un solo ramo, (aunque
+    considerable), que es el hierro.
+
+Siendo que estamos en tiempos más ilustrados, y, afortunadamente, no
+tan pobres, y habiendo el país bascongado dado lugar y origen al valle
+Arriastún, no por tener esta piedra volframio origen en él, sino por
+ser el lugar donde en todo tipo de cosas se convierte, ¿no será
+obligación de los sabios, capataces, menestrales y señores
+aprovecharlo todo ello para mayor lustre, gloria y felicidades de
+nuestra Monarca y, por ende, de sus súbditos?
+	
 
 Sirva esto como introito, o quizás disculpa, de la noticia que nos
 ocupa, que no es otra que la salida de la fábrica de Placencia de los
