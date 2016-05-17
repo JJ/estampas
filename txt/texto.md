@@ -273,7 +273,7 @@ Y él sigue diciendo
 
 	¿Será más honroso tener un gran número de criados inútiles al
     estado, como cocheros, lacayos, peluqueros &c., o una fábrica en
-    que se proporcione alimiento a muchas familias?
+    que se proporcione alimento a muchas familias?
 
 y continúa, como es bien sabido, afirmando que
 
@@ -334,6 +334,7 @@ las fábricas de Ermua, Eibar y Guernica no darán abasto para
 proporcionar a la clientela lo que desean. 
 
 ## 1873 Estampa 5: Amadeo de Saboya inaugura la exposición universal de San Sebastián.
+
 
 Con un gran pabellón dedicado a los productos de las granjas de Guinea
 y los metales preciosos de Conchinchina. 
