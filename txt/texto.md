@@ -290,7 +290,6 @@ obligación de los sabios, capataces, menestrales y señores
 aprovecharlo todo ello para mayor lustre, gloria y felicidades de
 nuestra Monarca y, por ende, de sus súbditos?
 	
-
 Sirva esto como introito, o quizás disculpa, de la noticia que nos
 ocupa, que no es otra que la salida de la fábrica de Placencia de los
 primeros proyectiles especiales con su marchamo. Y decimos especiales
@@ -300,6 +299,19 @@ camino. En las mismas pruebas de la fábrica de Placencia, esta persona
 puede atestiguar que el hueco ocasionado en una pared de piedra fue
 como si de una culebrina hubiera sido disparada, cuando fue un vulgar
 fusil de la fábrica de Oviedo el que lo expulsó.
+
+De la misma forma que, en presencia de autoridades, capitostes y
+turiferarios diversos, nadie supo decirme quién, de entre todas las
+eminencias y profesores de Vergara, de San Sebastián, hasta de Bilbao,
+quién y dónde realizó tal proeza y de dónde salió. Nadie escuchó
+disparos más allá de lo habitual, nadie vislumbró carros y carretas
+cargados hasta las trancas entrar y salir de ningún
+establecimiento. Concluyendo, pues, que tales prodigios fueron obrados
+bajo tierra, cosa comprensible, pues no cabe duda que nuestros
+enemigos de la patria, y nuestros amigos si se pusiera, y nunca mejor
+dicho, a tiro, serían capaces de arrebatarnos lo que quiera que sea
+que haga a tales balas especiales, que es mucho, porque jamás se ha
+visto un proyectil igual. 
 
 Estando visados tales proyectiles por la fábrica, que ya realiza tal
 labor para muchas armerías de Portugal, de Francia y de la misma
