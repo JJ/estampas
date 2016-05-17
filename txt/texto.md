@@ -339,6 +339,10 @@ proporcionar a la clientela lo que desean.
 
 ## 1873 Estampa 5: Amadeo de Saboya inaugura la exposición universal de San Sebastián.
 
+Que al lector no le quepa la menor duda de que esta exposición
+universal será recordada en los años venideros como la mayor, la más
+importante, la que mayor número de prodigios ha mostrado al público,
+que hoy, el primer día, se agolpaba con entusiasmo en la entrada, ...
 
 Con un gran pabellón dedicado a los productos de las granjas de Guinea
 y los metales preciosos de Conchinchina. 
