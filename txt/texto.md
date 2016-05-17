@@ -205,9 +205,13 @@ que, no bien se producían, eran podadas en agraz por nuestro eficaz
 ejército territorial. Nos cabe duda de que si a un solo invento, a uno
 solo, podemos agradecerle la paz y prosperidad que hemos experimentado
 en estos últimos veinte años bajo la dirección de la Regente y
-posteriormente de su hija, nuestra monarca, ha sido a la chispa que
+posteriormente de su hija, nuestra Monarca, ha sido a la chispa que
 transmite y que lleva la razón y la libertad a donde más se la
-necesita.
+necesita, razón y libertad que necesitan a veces los rifles de gente
+como el comandante Zumalacárregui del primer batallón de Guipúzcoa,
+que dio buena cuenta del cura Merino y cuantos chiquilicuatres como él
+intentaron, sin mucho éxito, sublevar a algunos elementos levantiscos
+y desafectos de los que, afortunadamente, pocos quedan ya. 
 
 Como conocimos, casi al instante, las gratas noticias de los
 descubrimientos de menas de wolframita en nuestras posesiones de
