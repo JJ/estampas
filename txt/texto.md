@@ -345,6 +345,17 @@ y los metales preciosos de Conchinchina.
 
 ## 1893 Estampa 6: La Concha iluminada con bombillas de filamento de wolframio
 
+Los donostiarras se pueden considerar los seres más afortunados del
+universo, y si no, del País Vascongado. A la donosura de sus gentes y
+la belleza de sus mujeres, se añade el talento de sus sabios y también
+la gracia de sus playas, admiración de propios y extraños, que todos
+los años, cuando entran las calores, bajan de los trenes en la
+estación del Norte o de los paquebotes en el muelle de Pasaia y,
+agitando abanicos y enarbolando sombrillas, acaban en nuestra playa de
+la Concha tomando baños y despejando esos mismos calores de sus
+canillas y, posiblemente, pantorrillas por el método de sumergirlas en
+el líquido elemento. 
+
 Fabricadas en la General Eléctrica en Bilbao. 
 
 ## 1895 Estampa 7: Inauguración del orbe y ferrocarril aéreo de la isla de Santa Clara. 
