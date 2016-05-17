@@ -306,7 +306,21 @@ eminencias y profesores de Vergara, de San Sebastián, hasta de Bilbao,
 quién y dónde realizó tal proeza y de dónde salió. Nadie escuchó
 disparos más allá de lo habitual, nadie vislumbró carros y carretas
 cargados hasta las trancas entrar y salir de ningún
-establecimiento. Concluyendo, pues, que tales prodigios fueron obrados
+establecimiento. Porque lo que pertenece a las meninges de las
+personas se puede ocultar mientras permanezca en tales meninges, pero
+cuando sale de ellas y, mayormente, cuando involucra tráfico y
+comercio, es difícil de ocultar. No pudo ocultarse durante mucho
+tiempo el Consorcio Armero del Deba cuando en los alrededores de la
+Casa de Unzueta cocheros y factores comparaban el linaje y la riqueza
+de sus señores, y de ahí que, unos meses antes de su anuncio, todos
+conociéramos qué artesanos y qué talleres iban a constituir el
+Consorcio y hasta cuantos reales aportaría la Corona para tal
+emprendimiento. Consorcio cuya ocultación no tenía más razón de ser
+que, quizás, el sustraerlo al conocimiento de facciosos y de algún
+carlista que todavía pueda quedar por estas tierras. 
+
+Pero ningún signo ni rumor ha precedido a este anuncio, concluyendo,
+pues, que tales prodigios fueron obrados 
 bajo tierra, cosa comprensible, pues no cabe duda que nuestros
 enemigos de la patria, y nuestros amigos si se pusiera, y nunca mejor
 dicho, a tiro, serían capaces de arrebatarnos lo que quiera que sea
@@ -316,7 +330,7 @@ visto un proyectil igual.
 Estando visados tales proyectiles por la fábrica, que ya realiza tal
 labor para muchas armerías de Portugal, de Francia y de la misma
 Bélgica, ya podrán ser vendidos y usados en todo el mundo, por lo que
-las fábricas de Ermua, Eibar y Elgoibar no darán abasto para
+las fábricas de Ermua, Eibar y Guernica no darán abasto para
 proporcionar a la clientela lo que desean. 
 
 ## 1873 Estampa 5: Amadeo de Saboya inaugura la exposición universal de San Sebastián.
