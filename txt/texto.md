@@ -354,7 +354,26 @@ estación del Norte o de los paquebotes en el muelle de Pasaia y,
 agitando abanicos y enarbolando sombrillas, acaban en nuestra playa de
 la Concha tomando baños y despejando esos mismos calores de sus
 canillas y, posiblemente, pantorrillas por el método de sumergirlas en
-el líquido elemento. 
+el líquido elemento.
+
+Y es que los forasteros siguen viniendo a nuestros hoteles, casas de
+huéspedes y, cuando el calor realmente aprieta, hasta a fondas y
+ventas. Todo barrio o caserío  que se pueda alcanzar andando una
+distancia razonable para un adulto sano desde una parada de tren local o
+tranvía ha comenzado a ser sazonado de este tipo de establecimientos,
+y con ellos carteles y anuncios de las bondades de los mismos, su
+pretendida limpieza y la abundancia y calidad de sus comidas. El
+precio es sorpresa o premio que se reserva al atrevido viajero que
+llegue al lugar, equipaje a cuestas y la ilusión de, al día siguiente,
+viajar a la Concha.
+
+Pero ya no tiene que esperar al día siguiente. Gracias a la
+iluminación con que la corporación donostiarra ha festoneado todo el
+paseo de la Concha, desde el Casino hasta la Perla e incluso más allá,
+los bañistas podrán tomar las aguas noche y día, mientras que el
+cuerpo aguante e incluso vislumbrar, si las neblinas lo permiten, la
+isla de Santa Clara, a la que las potentes luminarias llegan, en días
+claros, y sin demasiada dificultad. 
 
 Fabricadas en la General Eléctrica en Bilbao. 
 
