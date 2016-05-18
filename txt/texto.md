@@ -296,10 +296,13 @@ nuestra Monarca y, por ende, de sus súbditos?
 	
 Sirva esto como introito, o quizás disculpa, de la noticia que nos
 ocupa, que no es otra que la salida de la fábrica de Placencia de los
-primeros proyectiles especiales con su marchamo. Y decimos especiales
+primeros proyectiles especiales con el marchamo o prueba de la misma y
+las pruebas de disparo hechas con las mismas. Y decimos especiales
 aunque nadie ha sabido especificar su especialidad, pero sí que son
 capaces de penetrar chapas, corazas y cuanto obstáculo se ponga en su
-camino. En las mismas pruebas de la fábrica de Placencia, esta persona
+camino, cuando se disparen con un fusil tal como el Dreyse o
+Chassepot, al que se parece el que, efectivamente, usó el oficial que
+efectuó los disparos. En las mismas pruebas de la fábrica de Placencia, esta persona
 puede atestiguar que el hueco ocasionado en una pared de piedra fue
 como si de una culebrina hubiera sido disparada, cuando fue un vulgar
 fusil de la fábrica de Oviedo el que lo expulsó.
@@ -307,21 +310,27 @@ fusil de la fábrica de Oviedo el que lo expulsó.
 De la misma forma que, en presencia de autoridades, capitostes y
 turiferarios diversos, nadie supo decirme quién, de entre todas las
 eminencias y profesores de Vergara, de San Sebastián, hasta de Bilbao,
-quién y dónde realizó tal proeza y de dónde salió. Nadie escuchó
+quién y dónde realizó tal proeza y de dónde salió. Nadie en todo el
+valle Arriastún escuchó
 disparos más allá de lo habitual, nadie vislumbró carros y carretas
 cargados hasta las trancas entrar y salir de ningún
-establecimiento. Porque lo que pertenece a las meninges de las
+establecimiento. 
+
+Porque lo que pertenece y es propio de las meninges de las
 personas se puede ocultar mientras permanezca en tales meninges, pero
-cuando sale de ellas y, mayormente, cuando involucra tráfico y
+cuando sale de ellas y, mayormente, cuando involucra trasiego y
 comercio, es difícil de ocultar. No pudo ocultarse durante mucho
 tiempo el Consorcio Armero del Deba cuando en los alrededores de la
 Casa de Unzueta cocheros y factores comparaban el linaje y la riqueza
 de sus señores, y de ahí que, unos meses antes de su anuncio, todos
 conociéramos qué artesanos y qué talleres iban a constituir el
 Consorcio y hasta cuantos reales aportaría la Corona para tal
-emprendimiento. Consorcio cuya ocultación no tenía más razón de ser
+emprendimiento y cuando el señor Ajuria Atauri apareció por allí y qué
+comió y dijo. Y eso tratándose de un contubernio cuya ocultación no tenía más razón de ser
 que, quizás, el sustraerlo al conocimiento de facciosos y de algún
-carlista que todavía pueda quedar por estas tierras. 
+carlista que todavía pueda quedar por estas tierras, que
+afortunadamente pocos son y los pocos que hubiere callados se hallan
+por lo que pudiera pasar.  
 
 Pero ningún signo ni rumor ha precedido a este anuncio, concluyendo,
 pues, que tales prodigios fueron obrados 
