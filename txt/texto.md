@@ -537,6 +537,15 @@ imperdibles, enrollados como rabo de gorrino y metidos en esa ampolla
 de cristal, son los que ahora adornan el paseo marítimo y brillan como
 pequeños orbes solares en la misma playa de la Concha.
 
+Y fue cuando paseábamos por lo Viejo y con un poco de txakolina en
+nuestras venas cuando me contó como los guardias tenían que patrullar
+ante la fábrica día y noche, porque espías de todas las potencias y de
+alguna que querría serlo quieren hacerse con la fórmula, y que él
+mismo ha sido asediado y tentado con dinero y señoras de buen ver,
+pero que él patriota vascongado es y nunca dirá lo que sabe sobre las
+bombillas, que es mucho y variado y profundo.
+
+
 ## 1895 Estampa 7: Inauguración del orbe y ferrocarril aéreo de la isla de Santa Clara. 
 
 ## 1901 Estampa 8: El rey Manuel Filiberto salvado por la Coraza de Vergara
