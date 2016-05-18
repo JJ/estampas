@@ -348,7 +348,7 @@ enemigos de la patria, y nuestros amigos si se pusiera, y nunca mejor
 dicho, a tiro, serían capaces de arrebatarnos lo que quiera que sea
 que haga a tales balas especiales, que es mucho, porque jamás se ha
 visto un proyectil igual. Como no se vio aleación de acero y volframio
-igual antes de que Delhúhar dijera
+igual antes de que Delhúyar dijera
 
 	... con el hierro crudo o colado [...] dio un boton perfecto, cuya
     fractura era compacta ...
@@ -475,7 +475,13 @@ cuerpo aguante e incluso vislumbrar, si las neblinas lo permiten, la
 isla de Santa Clara, a la que las potentes luminarias llegan, en días
 claros, y sin demasiada dificultad. 
 
-Fabricadas en la General Eléctrica en Bilbao. 
+Para acompañarnos en esta primera iluminación de estas nuevas
+bombillas incandescentes, que así se denominan, nos ha acompañado
+Agapito Alberdi, ingeniero eléctrido de la General Eléctrica
+Vascongada sita en el Valle del Trápaga, quien, tras una llamada
+telefónica desde las oficinas de nuestro Diario, accedió a atendernos
+sin más coste ni cargo que chiquitear tras el *tour* con cargo a
+nuestros dilectos lectores. 
 
 ## 1895 Estampa 7: Inauguración del orbe y ferrocarril aéreo de la isla de Santa Clara. 
 
