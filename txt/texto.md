@@ -481,7 +481,12 @@ Agapito Alberdi, ingeniero eléctrido de la General Eléctrica
 Vascongada sita en el Valle del Trápaga, quien, tras una llamada
 telefónica desde las oficinas de nuestro Diario, accedió a atendernos
 sin más coste ni cargo que chiquitear tras el *tour* con cargo a
-nuestros dilectos lectores. 
+nuestros dilectos lectores.
+
+Antes de tales chiquitos me expuso a qué se debía tan grande y clara
+luz y cómo estas bombillas eran muy superiores a las que en otros
+lugares se estaban usando. Mientras que en Europa y en los Estados
+Unidos de América, un tal Thomas Alva Edison 
 
 ## 1895 Estampa 7: Inauguración del orbe y ferrocarril aéreo de la isla de Santa Clara. 
 
