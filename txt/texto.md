@@ -477,7 +477,7 @@ claros, y sin demasiada dificultad.
 
 Para acompañarnos en esta primera iluminación de estas nuevas
 bombillas incandescentes, que así se denominan, nos ha acompañado
-Agapito Alberdi, ingeniero eléctrido de la General Eléctrica
+Agapito Alberdi, ingeniero eléctrico de la General Eléctrica
 Vascongada sita en el Valle del Trápaga, quien, tras una llamada
 telefónica desde las oficinas de nuestro Diario, accedió a atendernos
 sin más coste ni cargo que chiquitear tras el *tour* con cargo a
@@ -486,7 +486,56 @@ nuestros dilectos lectores.
 Antes de tales chiquitos me expuso a qué se debía tan grande y clara
 luz y cómo estas bombillas eran muy superiores a las que en otros
 lugares se estaban usando. Mientras que en Europa y en los Estados
-Unidos de América, un tal Thomas Alva Edison 
+Unidos de América, un tal Thomas Alva Edison consiguió que,
+finalmente, una lámpara incandescente estuviera encendida el tiempo
+suficiente como para que un lector de velocidd mediana pudiera
+terminarse el periódico del día.
+
+Pero, según Agapito, ese tiempo no era nada comparado con la duración
+de los imperdibles volfránicos. Imperdibles que, al parecer, se
+crearon en grandes cantidades para suministro real pero que, una vez
+que la Corte recibió todos los necesarios para agarrar ropajes de
+todos sus cortesanos durante años enteros, nadie recordó anular los
+pedidos y por tanto los impredibles siguieron fabricándose. Todo ello
+podía haberse convertido en un gran timo del nazareno si la corte no
+siguiera pagando, pero eventualmente, según nos cuenta nuestro
+corresponsal en el valle Arriastún, el nazareno sucedió a la inversa
+porque la Corte, que siempre paga lo que debe porque para eso es su
+prerrogativa imprimir el dinero, decidió un día que no sabía que hacer
+con tanto impredible por lo que decidió devolver los envíos. Tal orden
+no debió de llegar al Pagador Real, porque se siguió pagando y se
+habría seguido haciendo si no fuera porque su Excelencia el Señor
+Prim, revisó cuentas y pagaderas hasta que suprimió el fondo de los
+Imperdibles, el Fondo de Reptiles, y algunos otros fondos que eran,
+sin embargo, en muchos casos forraderas del fondo de los bolsillos de
+capitostes y amigachos diversos.
+
+Sea como fuera, encontróse Vergara y su comarca con todo tipo de
+imperdibles, que al final no son más que una aguja torcida y de los
+pensamientos de un guipuzcoano, que no desperdicia nada, y de los
+susodichos imperdibles, salió aquella frase de
+
+	Sería una pena, además de imposible
+	que se perdiera un imperdible.
+
+así que quién hizo anzuelos para las truchas, quién clavos para colgar
+el calendario zaragozano, y quién cadenas para atar bien atados
+mastines y podencos.
+
+Pero hete aquí que llegó la electricidad y, siendo metales, alguien lo
+enganchó a un cable quién sabe si para que llegara unos codos más allá
+o poder evitar el quicio de una puerta, y se dio cuenta que, aparte de
+transmitir la electricidad, brillaba y daba calor. Quedóse encima de
+las puertas como luz para los huéspedes, pero quemábase rápido.
+
+Para hacer una larga, pero curiosa, historia corta, cuando alguien
+leyó en la Ilustración Española y Americana sobre esas lámparas que
+venían de Prusia y de Francia se le ocurrió usar estos mismos
+imperdibles, y acabó con un anciano en Azcoitia que supo darle razón
+de quién sabía y entendía cómo volver a hacerlos. Así que los
+imperdibles, enrollados como rabo de gorrino y metidos en esa ampolla
+de cristal, son los que ahora adornan el paseo marítimo y brillan como
+pequeños orbes solares en la misma playa de la Concha.
 
 ## 1895 Estampa 7: Inauguración del orbe y ferrocarril aéreo de la isla de Santa Clara. 
 
