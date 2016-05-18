@@ -420,7 +420,27 @@ más allá que cualquier mosquete fabricado en Seffield o en Lieja y,
 para compensar tanta letalidad, bellas telas de Vergara, damasquinados
 y las más cómodas diligencias para trasegar por caminos y carreteras
 donde el ferrocarril sea incapaz de llegar, que todavía son muchas y
-variadas en nuestra tierra. 
+variadas en nuestra tierra.
+
+Pero más interesante que lo que existe y se puede tocar, lo que se
+muestra en la exhibición de trabajos de los estudiantes de Ingeniería
+Mecánica y Eléctrica de la Escuela de Peritos de la Universidad de
+Guipúzcoa es el futuro, un futuro lleno de luz, de rapidez, de unión
+entre los pueblos a través del telégrafo y quién sabe qué otras artes,
+donde se construirán torres que llegarán al cielo y donde los
+navíos metálicos llevarán la civilización a todos los lugares del
+mundo, como ya sucede en Guinea y Conchinchina gracias al empeño,
+frugalidad y generosidad de nuestros granjeros e industriales
+bascongados, allí desplazados y que han vuelto brevemente para exponer
+los productos de sus exhuberantes granjas y ricas minas. Maravillas
+que, no nos cabe duda, estarán en nuestro futuro y, por ende, en el de
+toda la humanidad. 
+
+Pero el mayor prodigio es ver los ojos abiertos de los niños que se
+acercan a todo, tocan todo y que mientras lo hacen empiezan a imaginar
+ese futuro que, gracias a esta exposición, que es y está gracias a la
+tierra bascongada, está mucho más cerca y casi podemos tocarlo con la
+punta de los dedos. 
 
 
 ## 1893 Estampa 6: La Concha iluminada con bombillas de filamento de wolframio
