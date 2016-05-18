@@ -370,10 +370,58 @@ proporcionar a la clientela lo que desean.
 Que al lector no le quepa la menor duda de que esta exposición
 universal será recordada en los años venideros como la mayor, la más
 importante, la que mayor número de prodigios ha mostrado al público,
-que hoy, el primer día, se agolpaba con entusiasmo en la entrada, ...
+que hoy, el primer día, se agolpaba con entusiasmo en las tres grandes
+cancelas de entrada, a
+pesar del calor, inusual para un día seis de Julio, imperante en
+nuestra ciudad, aunque afortunadamente atemperado por una agradable
+brisa procedente del Cantábrico, al lado del cual se sitúa el recinto
+de la Exposición Internacional.
 
-Con un gran pabellón dedicado a los productos de las granjas de Guinea
-y los metales preciosos de Conchinchina. 
+Previamente fuimos testigos de la recepción de objetos que
+participarían en la exposición, procedente de comerciantes de toda la
+tierra Guipuzcoana, de Basconia, de nuestras colonias en la
+Conchinchina, Marruecos y Guinea y de las recientemente independizadas
+república de Cuba y de Filipinas. La paz de nuestro presidente Prim y
+de nuestro soberano Amadeo de Saboya ha traído prosperidad a todas las
+Españas y todos los pueblos que de ella dependen, o dependían, y no
+hay mejor combustible que la paz para que arda el fuego de la
+imaginación y la laboriosidad que comerciantes y artesanos ponen en
+sus productos y bagatelas.
+
+Pero de lo que no cabe duda es que, de entre todos los prodigios que
+allí se exponen, los que causan mayor admiración son los que proceden
+del valle Arriastún, que, a estas alturas de este afortunado siglo,
+alcanza ya a nuestra ciudad y al propio Bilbao, pese a hallarse a una
+distancia considerable del río Deba, distancia aminorada por los
+expresos que los unen entre sí en meras horas, como ya unen entre sí
+Azkoitia, Vergara, Eibar, Plentzia, Ermua y todas las localidades de
+donde proceden los artefactos que han traído la alegría al hogar del
+vascongado y la riqueza a sus gentes.
+
+Gentes cuyos representantes rodeaban la figura del Monarca y el
+príncipe de Asturias, que, junto con los alcaldes, diputados
+generales, grandes maestros de las logias del Grande Oriente,
+autoridades civiles y militares, banqueros y presidentes de montepíos y jaunchos diversos y fueron
+recorriendo los diferentes establecimientos, admirándose de sus
+monumentos, sacudiendo manos y sonriendo sin mirar a ninguna dirección
+en particular. Grande y edificante espectáculo es, la admiración y
+apoyo de los próceres a la ciencia, el comercio y la industria, pero
+sobre todo lo es cuando esa ciencia y el comercio se airea y se
+muestra a propios y extraños, para inspirar a generaciones venideras.
+
+Multitudes se admiraban ante máquinas herramientas que, según
+afirmaban carteles bien rotulados en su frontispicio, incluían
+fresadoras de carburo volfránico para crear los cañones más longevos y
+las piezas más precisas que precisa toda la maquinaria y las fábricas
+modernas. Enormes motores eléctricos que emitían alegremente
+chispazos, relucientes revólveres con cachas bellamente repujadas y
+fusiles que, al parecer, son capaces de disparar más lejos y penetrar
+más allá que cualquier mosquete fabricado en Seffield o en Lieja y,
+para compensar tanta letalidad, bellas telas de Vergara, damasquinados
+y las más cómodas diligencias para trasegar por caminos y carreteras
+donde el ferrocarril sea incapaz de llegar, que todavía son muchas y
+variadas en nuestra tierra. 
+
 
 ## 1893 Estampa 6: La Concha iluminada con bombillas de filamento de wolframio
 
