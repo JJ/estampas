@@ -296,10 +296,13 @@ nuestra Monarca y, por ende, de sus súbditos?
 	
 Sirva esto como introito, o quizás disculpa, de la noticia que nos
 ocupa, que no es otra que la salida de la fábrica de Placencia de los
-primeros proyectiles especiales con su marchamo. Y decimos especiales
+primeros proyectiles especiales con el marchamo o prueba de la misma y
+las pruebas de disparo hechas con las mismas. Y decimos especiales
 aunque nadie ha sabido especificar su especialidad, pero sí que son
 capaces de penetrar chapas, corazas y cuanto obstáculo se ponga en su
-camino. En las mismas pruebas de la fábrica de Placencia, esta persona
+camino, cuando se disparen con un fusil tal como el Dreyse o
+Chassepot, al que se parece el que, efectivamente, usó el oficial que
+efectuó los disparos. En las mismas pruebas de la fábrica de Placencia, esta persona
 puede atestiguar que el hueco ocasionado en una pared de piedra fue
 como si de una culebrina hubiera sido disparada, cuando fue un vulgar
 fusil de la fábrica de Oviedo el que lo expulsó.
