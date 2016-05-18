@@ -5,7 +5,16 @@ Teniendo todo en consideración, el año 1783 ha sido un buen año para la quím
 Y todo ha sucedido en la misma cuadrilla, la de los Elhuyar y en la misma ciudad, Vergara, ciudad que sin duda pasará a los anales de la historia como la mayor pequeña ciudad del universo mundo, aunque no nos cabe duda que con estos y otros muchos descubrimientos acaecidos en las paredes del Real Seminario Patriótico Bascongado, la pequeña ciudad devenirá una gran, moderna y cosmopolita urbe que, al lado de San Sebastián, Edimburgo, Berlín y París, fulgurará en el universo de las grandes capitales europeas.
 
 "Irurac, Bat", "de tres, uno", es el lema de esta Sociedad patriótica
-y son tres las estrellas que iluminan el firmamento filosófico natural: Francisco Chavano y los hermanos Fausto y Juan José Elhúyar, todos ellos nacidos fuera de este País pero tan patriotas como si se hubieran criado al seno ubérrimo de nuestro país bascongado en el que, de la misma manera, sí fueron nacidos los dos segundos. Y "las tres, una", las tres ciencias, la mineralogía, la química y la metalurgia, las que, siguiendo el aforismo que anima los trabajos de la sociedad bascongada, se han unido para originar los dos nuevos metales que Dios dio a la Humanidad, pero que a modo de profetas del progreso y de la Ciencia, Francisco, Juan José y Fausto han revelado a la misma. 
+y son tres las estrellas que iluminan el firmamento filosófico
+natural: Francisco Chavano y los hermanos Fausto y Juan José Elhúyar,
+todos ellos nacidos fuera de este País pero tan patriotas como si se
+hubieran criado al seno ubérrimo de nuestro país bascongado en el que,
+de la misma manera, sí fueron nacidos los dos segundos. Y "las tres,
+una", las tres ciencias, la mineralogía, la química y la metalurgia,
+las que, siguiendo el aforismo que anima los trabajos de la sociedad
+bascongada, se han unido para originar los dos nuevos metales que Dios
+dio a la Humanidad, pero que a modo de profetas del progreso y de la
+Ciencia, Francisco, Juan José y Fausto han revelado a la misma.  
 
 Y "Lan, Onari", "al buen trabajo", el otro lema de esta Sociedad que
 premia al que nuestro ya compatriota Chavano ha hecho en un
@@ -338,7 +347,17 @@ bajo tierra, cosa comprensible, pues no cabe duda que nuestros
 enemigos de la patria, y nuestros amigos si se pusiera, y nunca mejor
 dicho, a tiro, serían capaces de arrebatarnos lo que quiera que sea
 que haga a tales balas especiales, que es mucho, porque jamás se ha
-visto un proyectil igual. 
+visto un proyectil igual. Como no se vio aleación de acero y volframio
+igual antes de que Delhúhar dijera
+
+	... con el hierro crudo o colado [...] dio un boton perfecto, cuya
+    fractura era compacta ...
+
+sin que esto tenga nada que ver con los proyectiles que nos ocupan,
+que son de color blanco gris, de forma como de una tubería con un a
+modo de ojiva en el extremo superior y varias estrías en el inferior,
+y muy pesadas, tanto que pareciera que algo más pesado que el plomo,
+el mismo astunium, entrara en su composición.
 
 Estando visados tales proyectiles por la fábrica, que ya realiza tal
 labor para muchas armerías de Portugal, de Francia y de la misma
