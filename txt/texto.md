@@ -5,7 +5,16 @@ Teniendo todo en consideración, el año 1783 ha sido un buen año para la quím
 Y todo ha sucedido en la misma cuadrilla, la de los Elhuyar y en la misma ciudad, Vergara, ciudad que sin duda pasará a los anales de la historia como la mayor pequeña ciudad del universo mundo, aunque no nos cabe duda que con estos y otros muchos descubrimientos acaecidos en las paredes del Real Seminario Patriótico Bascongado, la pequeña ciudad devenirá una gran, moderna y cosmopolita urbe que, al lado de San Sebastián, Edimburgo, Berlín y París, fulgurará en el universo de las grandes capitales europeas.
 
 "Irurac, Bat", "de tres, uno", es el lema de esta Sociedad patriótica
-y son tres las estrellas que iluminan el firmamento filosófico natural: Francisco Chavano y los hermanos Fausto y Juan José Elhúyar, todos ellos nacidos fuera de este País pero tan patriotas como si se hubieran criado al seno ubérrimo de nuestro país bascongado en el que, de la misma manera, sí fueron nacidos los dos segundos. Y "las tres, una", las tres ciencias, la mineralogía, la química y la metalurgia, las que, siguiendo el aforismo que anima los trabajos de la sociedad bascongada, se han unido para originar los dos nuevos metales que Dios dio a la Humanidad, pero que a modo de profetas del progreso y de la Ciencia, Francisco, Juan José y Fausto han revelado a la misma. 
+y son tres las estrellas que iluminan el firmamento filosófico
+natural: Francisco Chavano y los hermanos Fausto y Juan José Elhúyar,
+todos ellos nacidos fuera de este País pero tan patriotas como si se
+hubieran criado al seno ubérrimo de nuestro país bascongado en el que,
+de la misma manera, sí fueron nacidos los dos segundos. Y "las tres,
+una", las tres ciencias, la mineralogía, la química y la metalurgia,
+las que, siguiendo el aforismo que anima los trabajos de la sociedad
+bascongada, se han unido para originar los dos nuevos metales que Dios
+dio a la Humanidad, pero que a modo de profetas del progreso y de la
+Ciencia, Francisco, Juan José y Fausto han revelado a la misma.  
 
 Y "Lan, Onari", "al buen trabajo", el otro lema de esta Sociedad que
 premia al que nuestro ya compatriota Chavano ha hecho en un
@@ -153,8 +162,9 @@ Y fue fácil la elección del volframio, una vez descartado el astunium,
 por ninguna razón otra que, al haber sido descubierto, en el lugar,
 eso sí, por un francés, el licenciado señor Proust, que el señor lo
 tenga en su gloria, tras fallecer, rodeado sus amigos Elhúyar y
-Chavano, aquí, en el lugar, enterrado como está no lejos de sus
-crisoles y matraces, en Bergara.
+Chavano, aquí, en el lugar, enterrado como está no lejos de los
+crisoles y matraces que fueron su trabajo cotidiano y la gloria de
+nuestro pais, en Bergara.
 
 Y podría haber sido el platino, que, en siendo también francés, tiene
 en sus orígenes la buena mano del difunto Elhúyar, aunque ya se usó tiempo ha para muchos
@@ -165,7 +175,12 @@ que le libró, quizás, de represalia o quién sabe si de otras cuitas,
 pero no habría sido un reto, así que los pupilos de la cátedra, los
 Munibe, Elhúyar, Argaiz, Prin, Zabaleta, se pusieron a la tarea de
 crear uno, quizás media docena, de imperdibles para nuestra querida
-Reina.
+Reina. O el eritronio, elemento que el ínclito Manuel del Río aisló y
+que en nuestro misma cátedra de Metalurgia fue confirmado como tal,
+tras la negativa de los supuestos sabios europeos, que no veían en las
+muestras traídas de Nueva España novedad alguna, bien que no podían
+ver más allá de sus antiparras o no querían porque así se les había
+ordenado. 
 
 Y bien que se pusieron, y es prodigio que merece el ensalzamiento, por
 hilar tan fino el volframio, que pareciera que hubieran creado un
@@ -257,7 +272,7 @@ considerada una de las bellas artes, sí es un arte aplicada, hay
 precisamente que aplicarse en hacerlo más y mejor que el que se
 encuentra enfrente con parecidas y aviesas intenciones.
 
-Pero las reglas no las escribimos los vizcaínos ni el ser humano y, en
+Pero las reglas que rigen el orbe no las escribimos los vizcaínos ni el ser humano y, en
 estos tiempos más iluminados en los que nuevos aires de libertad
 soplan por todas las Españas gracias a la elevación al poder del
 Maestro Sublime Perfecto y también Excelentísimo Sr. Presidente del
@@ -338,7 +353,17 @@ bajo tierra, cosa comprensible, pues no cabe duda que nuestros
 enemigos de la patria, y nuestros amigos si se pusiera, y nunca mejor
 dicho, a tiro, serían capaces de arrebatarnos lo que quiera que sea
 que haga a tales balas especiales, que es mucho, porque jamás se ha
-visto un proyectil igual. 
+visto un proyectil igual. Como no se vio aleación de acero y volframio
+igual antes de que Delhúyar dijera
+
+	... con el hierro crudo o colado [...] dio un boton perfecto, cuya
+    fractura era compacta ...
+
+sin que esto tenga nada que ver con los proyectiles que nos ocupan,
+que son de color blanco gris, de forma como de una tubería con un a
+modo de ojiva en el extremo superior y varias estrías en el inferior,
+y muy pesadas, tanto que pareciera que algo más pesado que el plomo,
+el mismo astunium, entrara en su composición.
 
 Estando visados tales proyectiles por la fábrica, que ya realiza tal
 labor para muchas armerías de Portugal, de Francia y de la misma
@@ -351,10 +376,78 @@ proporcionar a la clientela lo que desean.
 Que al lector no le quepa la menor duda de que esta exposición
 universal será recordada en los años venideros como la mayor, la más
 importante, la que mayor número de prodigios ha mostrado al público,
-que hoy, el primer día, se agolpaba con entusiasmo en la entrada, ...
+que hoy, el primer día, se agolpaba con entusiasmo en las tres grandes
+cancelas de entrada, a
+pesar del calor, inusual para un día seis de Julio, imperante en
+nuestra ciudad, aunque afortunadamente atemperado por una agradable
+brisa procedente del Cantábrico, al lado del cual se sitúa el recinto
+de la Exposición Internacional.
 
-Con un gran pabellón dedicado a los productos de las granjas de Guinea
-y los metales preciosos de Conchinchina. 
+Previamente fuimos testigos de la recepción de objetos que
+participarían en la exposición, procedente de comerciantes de toda la
+tierra Guipuzcoana, de Basconia, de nuestras colonias en la
+Conchinchina, Marruecos y Guinea y de las recientemente independizadas
+república de Cuba y de Filipinas. La paz de nuestro presidente Prim y
+de nuestro soberano Amadeo de Saboya ha traído prosperidad a todas las
+Españas y todos los pueblos que de ella dependen, o dependían, y no
+hay mejor combustible que la paz para que arda el fuego de la
+imaginación y la laboriosidad que comerciantes y artesanos ponen en
+sus productos y bagatelas.
+
+Pero de lo que no cabe duda es que, de entre todos los prodigios que
+allí se exponen, los que causan mayor admiración son los que proceden
+del valle Arriastún, que, a estas alturas de este afortunado siglo,
+alcanza ya a nuestra ciudad y al propio Bilbao, pese a hallarse a una
+distancia considerable del río Deba, distancia aminorada por los
+expresos que los unen entre sí en meras horas, como ya unen entre sí
+Azkoitia, Vergara, Eibar, Plentzia, Ermua y todas las localidades de
+donde proceden los artefactos que han traído la alegría al hogar del
+vascongado y la riqueza a sus gentes.
+
+Gentes cuyos representantes rodeaban la figura del Monarca y el
+príncipe de Asturias, que, junto con los alcaldes, diputados
+generales, grandes maestros de las logias del Grande Oriente,
+autoridades civiles y militares, banqueros y presidentes de montepíos y jaunchos diversos y fueron
+recorriendo los diferentes establecimientos, admirándose de sus
+monumentos, sacudiendo manos y sonriendo sin mirar a ninguna dirección
+en particular. Grande y edificante espectáculo es, la admiración y
+apoyo de los próceres a la ciencia, el comercio y la industria, pero
+sobre todo lo es cuando esa ciencia y el comercio se airea y se
+muestra a propios y extraños, para inspirar a generaciones venideras.
+
+Multitudes se admiraban ante máquinas herramientas que, según
+afirmaban carteles bien rotulados en su frontispicio, incluían
+fresadoras de carburo volfránico para crear los cañones más longevos y
+las piezas más precisas que precisa toda la maquinaria y las fábricas
+modernas. Enormes motores eléctricos que emitían alegremente
+chispazos, relucientes revólveres con cachas bellamente repujadas y
+fusiles que, al parecer, son capaces de disparar más lejos y penetrar
+más allá que cualquier mosquete fabricado en Seffield o en Lieja y,
+para compensar tanta letalidad, bellas telas de Vergara, damasquinados
+y las más cómodas diligencias para trasegar por caminos y carreteras
+donde el ferrocarril sea incapaz de llegar, que todavía son muchas y
+variadas en nuestra tierra.
+
+Pero más interesante que lo que existe y se puede tocar, lo que se
+muestra en la exhibición de trabajos de los estudiantes de Ingeniería
+Mecánica y Eléctrica de la Escuela de Peritos de la Universidad de
+Guipúzcoa es el futuro, un futuro lleno de luz, de rapidez, de unión
+entre los pueblos a través del telégrafo y quién sabe qué otras artes,
+donde se construirán torres que llegarán al cielo y donde los
+navíos metálicos llevarán la civilización a todos los lugares del
+mundo, como ya sucede en Guinea y Conchinchina gracias al empeño,
+frugalidad y generosidad de nuestros granjeros e industriales
+bascongados, allí desplazados y que han vuelto brevemente para exponer
+los productos de sus exhuberantes granjas y ricas minas. Maravillas
+que, no nos cabe duda, estarán en nuestro futuro y, por ende, en el de
+toda la humanidad. 
+
+Pero el mayor prodigio es ver los ojos abiertos de los niños que se
+acercan a todo, tocan todo y que mientras lo hacen empiezan a imaginar
+ese futuro que, gracias a esta exposición, que es y está gracias a la
+tierra bascongada, está mucho más cerca y casi podemos tocarlo con la
+punta de los dedos. 
+
 
 ## 1893 Estampa 6: La Concha iluminada con bombillas de filamento de wolframio
 
@@ -388,19 +481,146 @@ cuerpo aguante e incluso vislumbrar, si las neblinas lo permiten, la
 isla de Santa Clara, a la que las potentes luminarias llegan, en días
 claros, y sin demasiada dificultad. 
 
-Fabricadas en la General Eléctrica en Bilbao. 
+Para acompañarnos en esta primera iluminación de estas nuevas
+bombillas incandescentes, que así se denominan, nos ha acompañado
+Agapito Alberdi, ingeniero eléctrico de la General Eléctrica
+Vascongada sita en el Valle del Trápaga, quien, tras una llamada
+telefónica desde las oficinas de nuestro Diario, accedió a atendernos
+sin más coste ni cargo que chiquitear tras el *tour* con cargo a
+nuestros dilectos lectores.
 
-## 1895 Estampa 7: Inauguración del orbe y ferrocarril aéreo de la isla de Santa Clara. 
+Antes de tales chiquitos me expuso a qué se debía tan grande y clara
+luz y cómo estas bombillas eran muy superiores a las que en otros
+lugares se estaban usando. Mientras que en Europa y en los Estados
+Unidos de América, un tal Thomas Alva Edison consiguió que,
+finalmente, una lámpara incandescente estuviera encendida el tiempo
+suficiente como para que un lector de velocidad mediana pudiera
+terminarse el periódico del día.
 
-## 1901 Estampa 8: El rey Manuel Filiberto salvado por la Coraza de Vergara
+Pero, según Agapito, ese tiempo no era nada comparado con la duración
+de los imperdibles volfránicos. Imperdibles que, al parecer, se
+crearon en grandes cantidades para suministro real pero que, una vez
+que la Corte recibió todos los necesarios para agarrar ropajes de
+todos sus cortesanos durante años enteros, nadie recordó anular los
+pedidos y por tanto los imperdibles siguieron fabricándose. Todo ello
+podía haberse convertido en un gran timo del nazareno si la corte no
+siguiera pagando, pero eventualmente, según nos cuenta nuestro
+corresponsal en el valle Arriastún, el nazareno sucedió a la inversa
+porque la Corte, que siempre paga lo que debe porque para eso es su
+prerrogativa imprimir el dinero, decidió un día que no sabía que hacer
+con tanto impredible por lo que decidió devolver los envíos. Tal orden
+no debió de llegar al Pagador Real, porque se siguió pagando y se
+habría seguido haciendo si no fuera porque su Excelencia el Señor
+Prim, revisó cuentas y pagaderas hasta que suprimió el fondo de los
+Imperdibles, el Fondo de Reptiles, y algunos otros fondos que eran,
+sin embargo, en muchos casos forraderas del fondo de los bolsillos de
+capitostes y amigachos diversos.
+
+Sea como fuera, encontróse Vergara y su comarca con todo tipo de
+imperdibles, que al final no son más que una aguja torcida y de los
+pensamientos de un guipuzcoano, que no desperdicia nada, y de los
+susodichos imperdibles, salió aquella frase de
+
+	Sería una pena, además de imposible
+	que se perdiera un imperdible.
+
+así que quién hizo anzuelos para las truchas, quién clavos para colgar
+el calendario zaragozano, y quién cadenas para atar bien atados
+mastines y podencos.
+
+Pero hete aquí que llegó la electricidad y, siendo metales, alguien lo
+enganchó a un cable quién sabe si para que llegara unos codos más allá
+o poder evitar el quicio de una puerta, y se dio cuenta que, aparte de
+transmitir la electricidad, brillaba y emitía calor. Quedóse encima de
+las puertas como luz para los huéspedes, pero quemábase rápido.
+
+Para hacer una larga, pero curiosa, historia corta, cuando alguien
+leyó en la Ilustración Española y Americana sobre esas lámparas que
+venían de Prusia y de Francia se le ocurrió usar estos mismos
+imperdibles, y acabó con un anciano en Azcoitia que supo darle razón
+de quién sabía y entendía cómo volver a hacerlos. Así que los
+imperdibles, enrollados como rabo de gorrino y metidos en esa ampolla
+de cristal, son los que ahora adornan el paseo marítimo y brillan como
+pequeños orbes solares en la misma playa de la Concha.
+
+Y fue cuando paseábamos por lo Viejo y con un poco de txakolina en
+nuestras venas cuando me contó como los guardias tenían que patrullar
+ante la fábrica día y noche, porque espías de todas las potencias y de
+alguna que querría serlo quieren hacerse con la fórmula, y que él
+mismo ha sido asediado y tentado con dinero y señoras de buen ver,
+pero que él patriota vascongado es y nunca dirá lo que sabe sobre las
+bombillas, que es mucho y variado y profundo.
 
 
-## 1905 Estampa 9: El lehendakari Serafín Baroja visita la central de mareas
+## 1895 Estampa 7: Inauguración del orbe y ferrocarril aéreo de la isla de Santa Clara.
 
-## 1911 Estampa 10: Llegada del primer dirigible de línea regular San Sebastián-Santa Isabel
+Dícese que toda gran ciudad tiene un gran monumento que la
+identifique. Nueva York tiene su estatua de la Libertad, bien que no
+se encuentra en la ciudad y puede que ni en el Estado. París tiene,
+desde no hace tanto, una Gran Torre. Pero el señor Baedeker, en su
+guía traída y llevada por tanto forastero, dice de nuestra urbe
 
-Dirigibles Astra-Torres, 48 horas hasta Santa Isabel. El atracadero de
-Dirigibles se construye en el monte Igeldo por el conde de Motrico. 
+	La Ciudad Vieja contiene pocos objetos de interés.
+
+Nunca más. No sólo podrá dedicar párrafos, quizás una página entera, a
+lo que nos ocupa en este artículo, sino que se lo quitará desde este
+momento a los monumentos mencionados más arriba, empequeñecidos ya por
+el orbe de nuestro paisano Alberto de Palacio, que, tras meses de
+obras, hoy ha sido descubierto en la isla de Santa Clara. Y no sólo se
+ha inaugurado tal cosa, sino que los convecinos ya nos podemos
+desplazar a admirarlo desde su misma base usando el nuevo y flamante
+ferrocarril aéreo que desde ahora atraviesa la bahía de la Concha.
+
+Como todos los grandes proyectos de la humanidad, este comenzó en el
+año de 1894 con dudas sobre dónde aterrizaría el ferrocarril, qué
+sucedería con el fondeadero de buques y, también, la razón última: por
+qué nadie querría desplazarse a la Isla Santa Clara, donde pocos
+objetos de interés hay. Los mismos comerciantes y tenderos de la
+Concha expresaron su rechazo de la idea que alejaría a los forasteros
+y clientes de sus establecimientos para llevarlos no se sabe bien a
+qué en un islote. Pero cuando el eminente Sr. Palacio aportó artículos
+de prensa ilustrada que ensalzaban y elogiaban su Palacio de Cristal
+en Madrid y, sobre todo, su puente de Vizcaya, digno de admiración
+hasta para el propio Gustavo Eiffel, constructor de la torre que desde
+entonces lleva su nombre y presentó planos y maqueta del orbe que
+ahora descubrimos al mundo, la corporación municipal en pleno y a una
+buscó la forma de que tal proyecto se llevara a cabo lo antes
+posible, siendo además una forma de dar trabajo a ferrones y
+volframeros de toda la provincia y, por qué no decirlo, a familiares y
+amistades de los ediles que pareciera que, en siéndolo, se
+reprodujeran tales personas a su cargo con la misma facilidad que
+conejos en conejera.
+
+Bien está lo que bien acaba, sin embargo, y la dual inauguración de
+ambos portentos comenzó en la estación del ferrocarril, más allá de la
+Perla, donde, erigido sobre pilotes que cruzaban la bahía, y poniendo
+un marco a la misma, la vía parecía una flecha que apuntaba a un
+inmenso orbe, de más de doscientos metros donde, en relieve, se
+distinguen todas las tierras de nuestro planeta y, en diferentes
+colores logrados gracias a los metales que han dado nombre a nuestra
+tierra, el astunium, el eritronio, el volframio, nuestro país y sus
+posesiones resaltan sobre el ancho mundo, mostrando a todo el que se
+acerca donde el bascongado es capaz de llegar cuando se lo
+propone.
+
+La corona del orbe fue objeto de muchas polémicas y argumentos, que
+desbordaron la corporación municipal para llegar a la prensa y de
+vuelta a la misma corporación. Pero, finalmente, todos estuvieron de
+acuerdo en coronarla con el objeto que reflejaba el espíritu y la
+ciencia guipuzcoana de forma más integral y verdadera.
+
+Por ello, en la cúspide del planeta, y saliendo de su polo norte, se
+puede contemplar un imperdible. Comentan los ingenieros que,
+tratándose de tal estructura metálica y por su forma apuntada, es,
+además, un eficacísimo pararrayos, así que a su función simbólica se
+le auna una eminente función práctica.
+
+Meros minutos, y sólo un puñado de pesetas, separan al turista que
+pasea por la bahía de admirar desde su polo sur este orbe de la
+eminencia señor Palacio, que, desde hoy, se une a las maravillas que
+todo forastero en *Gran Tour* por Europa deberá visitar, so pena de
+perderse una de las grandes maravillas del mundo.
+
 
 
 
