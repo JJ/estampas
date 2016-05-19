@@ -488,7 +488,7 @@ luz y cómo estas bombillas eran muy superiores a las que en otros
 lugares se estaban usando. Mientras que en Europa y en los Estados
 Unidos de América, un tal Thomas Alva Edison consiguió que,
 finalmente, una lámpara incandescente estuviera encendida el tiempo
-suficiente como para que un lector de velocidd mediana pudiera
+suficiente como para que un lector de velocidad mediana pudiera
 terminarse el periódico del día.
 
 Pero, según Agapito, ese tiempo no era nada comparado con la duración
@@ -496,7 +496,7 @@ de los imperdibles volfránicos. Imperdibles que, al parecer, se
 crearon en grandes cantidades para suministro real pero que, una vez
 que la Corte recibió todos los necesarios para agarrar ropajes de
 todos sus cortesanos durante años enteros, nadie recordó anular los
-pedidos y por tanto los impredibles siguieron fabricándose. Todo ello
+pedidos y por tanto los imperdibles siguieron fabricándose. Todo ello
 podía haberse convertido en un gran timo del nazareno si la corte no
 siguiera pagando, pero eventualmente, según nos cuenta nuestro
 corresponsal en el valle Arriastún, el nazareno sucedió a la inversa
@@ -559,8 +559,7 @@ bombillas, que es mucho y variado y profundo.
 
 <!-- Igual esta me la quito de enmedio -->
 
-## 1905 Estampa 9: El lehendakari Serafín Baroja visita la central de
-   mareas
+## 1905 Estampa 9: El lehendakari Serafín Baroja visita la central de  mareas
 
 <!-- Cabe la posibilidad de que esta también me la ventile -->
 
