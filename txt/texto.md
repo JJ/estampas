@@ -162,8 +162,9 @@ Y fue fácil la elección del volframio, una vez descartado el astunium,
 por ninguna razón otra que, al haber sido descubierto, en el lugar,
 eso sí, por un francés, el licenciado señor Proust, que el señor lo
 tenga en su gloria, tras fallecer, rodeado sus amigos Elhúyar y
-Chavano, aquí, en el lugar, enterrado como está no lejos de sus
-crisoles y matraces, en Bergara.
+Chavano, aquí, en el lugar, enterrado como está no lejos de los
+crisoles y matraces que fueron su trabajo cotidiano y la gloria de
+nuestro pais, en Bergara.
 
 Y podría haber sido el platino, que, en siendo también francés, tiene
 en sus orígenes la buena mano del difunto Elhúyar, aunque ya se usó tiempo ha para muchos
@@ -174,7 +175,12 @@ que le libró, quizás, de represalia o quién sabe si de otras cuitas,
 pero no habría sido un reto, así que los pupilos de la cátedra, los
 Munibe, Elhúyar, Argaiz, Prin, Zabaleta, se pusieron a la tarea de
 crear uno, quizás media docena, de imperdibles para nuestra querida
-Reina.
+Reina. O el eritronio, elemento que el ínclito Manuel del Río aisló y
+que en nuestro misma cátedra de Metalurgia fue confirmado como tal,
+tras la negativa de los supuestos sabios europeos, que no veían en las
+muestras traídas de Nueva España novedad alguna, bien que no podían
+ver más allá de sus antiparras o no querían porque así se les había
+ordenado. 
 
 Y bien que se pusieron, y es prodigio que merece el ensalzamiento, por
 hilar tan fino el volframio, que pareciera que hubieran creado un
@@ -266,7 +272,7 @@ considerada una de las bellas artes, sí es un arte aplicada, hay
 precisamente que aplicarse en hacerlo más y mejor que el que se
 encuentra enfrente con parecidas y aviesas intenciones.
 
-Pero las reglas no las escribimos los vizcaínos ni el ser humano y, en
+Pero las reglas que rigen el orbe no las escribimos los vizcaínos ni el ser humano y, en
 estos tiempos más iluminados en los que nuevos aires de libertad
 soplan por todas las Españas gracias a la elevación al poder del
 Maestro Sublime Perfecto y también Excelentísimo Sr. Presidente del
