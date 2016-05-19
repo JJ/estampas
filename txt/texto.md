@@ -554,27 +554,73 @@ bombillas, que es mucho y variado y profundo.
 
 ## 1895 Estampa 7: Inauguración del orbe y ferrocarril aéreo de la isla de Santa Clara.
 
-<!-- El orbe es uno de los inventos de Alberto de Palacio, de Sare, -->
-<!-- que nunca llegó a construirse -->
+Dícese que toda gran ciudad tiene un gran monumento que la
+identifique. Nueva York tiene su estatua de la Libertad, bien que no
+se encuentra en la ciudad y puede que ni en el Estado. París tiene,
+desde no hace tanto, una Gran Torre. Pero el señor Baedeker, en su
+guía traída y llevada por tanto forastero, dice de nuestra urbe
 
-<!-- El ferrocarril aéreo fue otra idea que nunca se construyó, pero -->
-<!-- de otra persona -->
+	La Ciudad Vieja contiene pocos objetos de interés.
 
+Nunca más. No sólo podrá dedicar párrafos, quizás una página entera, a
+lo que nos ocupa en este artículo, sino que se lo quitará desde este
+momento a los monumentos mencionados más arriba, empequeñecidos ya por
+el orbe de nuestro paisano Alberto de Palacio, que, tras meses de
+obras, hoy ha sido descubierto en la isla de Santa Clara. Y no sólo se
+ha inaugurado tal cosa, sino que los convecinos ya nos podemos
+desplazar a admirarlo desde su misma base usando el nuevo y flamante
+ferrocarril aéreo que desde ahora atraviesa la bahía de la Concha.
 
-## 1901 Estampa 8: El rey Manuel Filiberto salvado por la Coraza de Vergara
+Como todos los grandes proyectos de la humanidad, este comenzó en el
+año de 1894 con dudas sobre dónde aterrizaría el ferrocarril, qué
+sucedería con el fondeadero de buques y, también, la razón última: por
+qué nadie querría desplazarse a la Isla Santa Clara, donde pocos
+objetos de interés hay. Los mismos comerciantes y tenderos de la
+Concha expresaron su rechazo de la idea que alejaría a los forasteros
+y clientes de sus establecimientos para llevarlos no se sabe bien a
+qué en un islote. Pero cuando el eminente Sr. Palacio aportó artículos
+de prensa ilustrada que ensalzaban y elogiaban su Palacio de Cristal
+en Madrid y, sobre todo, su puente de Vizcaya, digno de admiración
+hasta para el propio Gustavo Eiffel, constructor de la torre que desde
+entonces lleva su nombre y presentó planos y maqueta del orbe que
+ahora descubrimos al mundo, la corporación municipal en pleno y a una
+buscó la forma de que tal proyecto se llevara a cabo lo antes
+posible, siendo además una forma de dar trabajo a ferrones y
+volframeros de toda la provincia y, por qué no decirlo, a familiares y
+amistades de los ediles que pareciera que, en siéndolo, se
+reprodujeran tales personas a su cargo con la misma facilidad que
+conejos en conejera.
 
-<!-- Igual esta me la quito de enmedio -->
+Bien está lo que bien acaba, sin embargo, y la dual inauguración de
+ambos portentos comenzó en la estación del ferrocarril, más allá de la
+Perla, donde, erigido sobre pilotes que cruzaban la bahía, y poniendo
+un marco a la misma, la vía parecía una flecha que apuntaba a un
+inmenso orbe, de más de doscientos metros donde, en relieve, se
+distinguen todas las tierras de nuestro planeta y, en diferentes
+colores logrados gracias a los metales que han dado nombre a nuestra
+tierra, el astunium, el eritronio, el volframio, nuestro país y sus
+posesiones resaltan sobre el ancho mundo, mostrando a todo el que se
+acerca donde el bascongado es capaz de llegar cuando se lo
+propone.
 
-## 1905 Estampa 9: El lehendakari Serafín Baroja visita la central de  mareas
+La corona del orbe fue objeto de muchas polémicas y argumentos, que
+desbordaron la corporación municipal para llegar a la prensa y de
+vuelta a la misma corporación. Pero, finalmente, todos estuvieron de
+acuerdo en coronarla con el objeto que reflejaba el espíritu y la
+ciencia guipuzcoana de forma más integral y verdadera.
 
-<!-- Cabe la posibilidad de que esta también me la ventile -->
+Por ello, en la cúspide del planeta, y saliendo de su polo norte, se
+puede contemplar un imperdible. Comentan los ingenieros que,
+tratándose de tal estructura metálica y por su forma apuntada, es,
+además, un eficacísimo pararrayos, así que a su función simbólica se
+le auna una eminente función práctica.
 
-## 1911 Estampa 10: Llegada del primer dirigible de línea regular San Sebastián-Santa Isabel
+Meros minutos, y sólo un puñado de pesetas, separan al turista que
+pasea por la bahía de admirar desde su polo sur este orbe de la
+eminencia señor Palacio, que, desde hoy, se une a las maravillas que
+todo forastero en *Gran Tour* por Europa deberá visitar, so pena de
+perderse una de las grandes maravillas del mundo.
 
-<!-- Y esta, casi que también -- >
-
-Dirigibles Astra-Torres, 48 horas hasta Santa Isabel. El atracadero de
-Dirigibles se construye en el monte Igeldo por el conde de Motrico. 
 
 
 
