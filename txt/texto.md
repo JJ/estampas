@@ -508,7 +508,7 @@ siguiera pagando, pero eventualmente, según nos cuenta nuestro
 corresponsal en el valle Arriastún, el nazareno sucedió a la inversa
 porque la Corte, que siempre paga lo que debe porque para eso es su
 prerrogativa imprimir el dinero, decidió un día que no sabía que hacer
-con tanto impredible por lo que decidió devolver los envíos. Tal orden
+con tanto imperdible por lo que resolvió devolver al remitente los envíos. Tal orden
 no debió de llegar al Pagador Real, porque se siguió pagando y se
 habría seguido haciendo si no fuera porque su Excelencia el Señor
 Prim, revisó cuentas y pagaderas hasta que suprimió el fondo de los
