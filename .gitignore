@@ -160,3 +160,7 @@ TSWLatexianTemp*
 
 # backup
 *~
+
+# Generados
+*.doc
+*.epub
