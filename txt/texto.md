@@ -419,7 +419,7 @@ donde proceden los artefactos que han traído la alegría al hogar del
 vascongado y la riqueza a sus gentes.
 
 Gentes cuyos representantes rodeaban la figura del Monarca y el
-príncipe de Asturias, que, junto con los alcaldes, diputados
+príncipe de Asturias Don Enmanuel Filiberto, que, junto con los alcaldes, diputados
 generales, grandes maestros de las logias del Grande Oriente,
 autoridades civiles y militares, banqueros y presidentes de montepíos y jaunchos diversos y fueron
 recorriendo los diferentes establecimientos, admirándose de sus
@@ -434,7 +434,17 @@ afirmaban carteles bien rotulados en su frontispicio, incluían
 fresadoras de carburo volfránico para crear los cañones más longevos y
 las piezas más precisas que precisa toda la maquinaria y las fábricas
 modernas. Enormes motores eléctricos que emitían alegremente
-chispazos, relucientes revólveres con cachas bellamente repujadas y
+chispazos, colosos de vapor cuyas vaharadas sobrecogían a la multitud
+y cuyo propósito sólo se podía entrever y relucientes aparatos ópticos
+con lentes que podrían dejarnos ver la luna y las estrellas como si se
+encontraran en la cumbre del Urgull.
+
+
+El Consorcio Armero del Deba, fue, sin duda, la estrella, mostrando en
+sus múltiples casetas, decoradas con carteles que proclamaban con
+arrogancia la precisión de sus productos y el éxito comercial entre el
+resto de las potencias europeas, relucientes revólveres con cachas
+bellamente repujadas, proyectiles tan plateados y brillantes como precisos y 
 fusiles que, al parecer, son capaces de disparar más lejos y penetrar
 más allá que cualquier mosquete fabricado en Seffield o en Lieja y,
 para compensar tanta letalidad, bellas telas de Vergara, damasquinados
@@ -500,7 +510,7 @@ bombillas incandescentes, que así se denominan, nos ha acompañado
 Agapito Alberdi, ingeniero eléctrico de la General Eléctrica
 Vascongada sita en el Valle del Trápaga, quien, tras una llamada
 telefónica desde las oficinas de nuestro Diario, accedió a atendernos
-sin más coste ni cargo que chiquitear tras el *tour* con cargo a
+sin más coste que chiquitear tras el *tour* con cargo a
 nuestros dilectos lectores.
 
 Antes de tales chiquitos me expuso a qué se debía tan grande y clara
@@ -511,9 +521,11 @@ finalmente, una lámpara incandescente estuviera encendida el tiempo
 suficiente como para que un lector de velocidad mediana pudiera
 terminarse el periódico del día.
 
-Pero, según Agapito, ese tiempo no era nada comparado con la duración
-de los imperdibles volfránicos. Imperdibles que, al parecer, se
-crearon en grandes cantidades para suministro real pero que, una vez
+Pero, según Agapito, esa permanencia era efímera comparada con la duración
+de los imperdibles volfránicos. Y estaréis preguntándoos a santo de
+qué viene ahora traer a colación a estos utensilios de la
+indumentaria. Pues los más viejos del lugar recordarán que los imperdibles, al parecer, se
+manufacturaron en grandes cantidades para suministro real pero que, una vez
 que la Corte recibió todos los necesarios para agarrar ropajes de
 todos sus cortesanos durante años enteros, nadie recordó anular los
 pedidos y por tanto los imperdibles siguieron fabricándose. Todo ello
@@ -572,7 +584,8 @@ Dícese que toda gran ciudad tiene un gran monumento que la
 identifique. Nueva York tiene su estatua de la Libertad, bien que no
 se encuentra en la ciudad y puede que ni en el Estado. París tiene,
 desde no hace tanto, una Gran Torre. Pero el señor Baedeker, en su
-guía traída y llevada por tanto forastero, dice de nuestra urbe
+guía traída y llevada por tanto forastero, afirma de la urbe de
+nuestros pecados que 
 
 	La Ciudad Vieja contiene pocos objetos de interés.
 
