@@ -1,8 +1,19 @@
 ## 1773, Estampa 1: Descubrimiento del volfram por los hermanos Elhúyar
 
-Teniendo todo en consideración, el año 1783 ha sido un buen año para la química bascongada y, por ende, la hispana. En un año, dos nuevos y brillantes metales han sido añadidos a los anaqueles de los metalistas, joyeros y armeros: la platina y el, por falta de un mejor nombre, volfran.
+Teniendo todo en consideración, el año 1783 ha sido un buen año para
+la química bascongada y, por ende, la hispana. En un año, dos nuevos y
+brillantes metales han sido añadidos a los anaqueles de los
+metalistas, joyeros y armeros: la platina y el, por falta de un mejor
+nombre, volfran. 
 
-Y todo ha sucedido en la misma cuadrilla, la de los Elhuyar y en la misma ciudad, Vergara, ciudad que sin duda pasará a los anales de la historia como la mayor pequeña ciudad del universo mundo, aunque no nos cabe duda que con estos y otros muchos descubrimientos acaecidos en las paredes del Real Seminario Patriótico Bascongado, la pequeña ciudad devenirá una gran, moderna y cosmopolita urbe que, al lado de San Sebastián, Edimburgo, Berlín y París, fulgurará en el universo de las grandes capitales europeas.
+Y todo ha sucedido en la misma cuadrilla, la de los Elhuyar y en la
+misma ciudad, Vergara, ciudad que sin duda pasará a los anales de la
+historia como la mayor pequeña ciudad del universo mundo, aunque no
+nos cabe duda que con estos y otros muchos descubrimientos acaecidos
+en las paredes del Real Seminario Patriótico Bascongado, la pequeña
+ciudad devenirá una gran, moderna y cosmopolita urbe que, al lado de
+San Sebastián, Edimburgo, Berlín y París, fulgurará en el universo de
+las grandes capitales europeas. 
 
 "Irurac, Bat", "de tres, uno", es el lema de esta Sociedad patriótica
 y son tres las estrellas que iluminan el firmamento filosófico
@@ -41,7 +52,7 @@ oro, impedían, sin embargo, su extracción. Pero Chavano, como extrajo
 la esencia de la shalda, también extrajo el nuevo metal, llamado
 platino, de esa sopa que era la platina. Nuevo metal con el que pudo,
 finalmente, crear una cucharita que, por alguna razón, acabó en las
-manos del ilustre sueco Tunborg. 
+manos del ilustre ciudadano sueco Tunborg. 
 
 Pero lo que quedó en las manos de su cuadrilla fue mucho más
 importante. Una cucharilla puedes distraerla entre los pliegues de una
@@ -160,9 +171,12 @@ industria de la que son capaces.
 
 Y fue fácil la elección del volframio, una vez descartado el astunium,
 por ninguna razón otra que, al haber sido descubierto, en el lugar,
-eso sí, por un francés, el licenciado señor Proust, que el señor lo
-tenga en su gloria, tras fallecer, rodeado sus amigos Elhúyar y
-Chavano, aquí, en el lugar, enterrado como está no lejos de los
+eso sí, por un francés, el licenciado señor Proust, que le dio el
+nombre astunium por ser pesado como él solo, porque "Izena duena, da",
+y hasta que no se le dio un nombre vascuence, no existió el
+astunium. El Señor de lo Más Alto tenga en su gloria al mesié Proust,
+tras fallecer, rodeado sus amigos Elhúyar y 
+Chavano, aquí, en el mismo lugar, enterrado como está no lejos de los
 crisoles y matraces que fueron su trabajo cotidiano y la gloria de
 nuestro pais, en Bergara.
 
