@@ -30,7 +30,7 @@ Ciencia, Francisco, Juan José y Fausto han revelado a la misma.
 Y "Lan, Onari", "al buen trabajo", el otro lema de esta Sociedad que
 premia al que nuestro ya compatriota Chavano ha hecho en un
 laboratorio que, según el ilustre científico sueco Tunborg, nada tiene
-que envidiar a los de las lejanas y quizás más ricas Uppsala y
+que envidiar a los de las lejanas y quizás más ricas ciudades Uppsala y
 Estocolmo. Pero tierras lejanas tienen problemas lejanos, y el talento
 de Chavano hizo que se aplicara a problemas cercanos, el de la shalda
 o caldo de carne que se le da a los enfermos, tratando de destilarlo
@@ -134,8 +134,7 @@ otros.
 
 Fue en esa cátedra donde, a petición de su majestad Fernando el Séptimo,
 cuya vida y la de su esposa guarde Dios Nuestro Señor muchos años o
-los que tenga menester, se
-creó el primer imperdible volfrámico.
+los que tenga menester, se creó el primer imperdible volfránico.
 
 Y no fue tarea fácil, porque los mismos hermanos Elhúyar, en el
 descubrimiento del que es ahora enseña y guía de los quehaceres de la
@@ -452,13 +451,32 @@ y las más cómodas diligencias para trasegar por caminos y carreteras
 donde el ferrocarril sea incapaz de llegar, que todavía son muchas y
 variadas en nuestra tierra.
 
-Pero más interesante que lo que existe y se puede tocar, lo que se
+Tras el recorrido por la exhibición estática, todos nos volvimos hacia
+la Concha, donde tuvo lugar la parada naval, que, entre navíos de
+muchos palos y poderosos buques de guerra de la Armada, tuvo como
+estrella el pequeño, misterioso y sigiloso sumergible del doctor
+Monturiol, dos de los cuales, recientemente adquiridos por la Armada, ya
+están operativos y navegando por sabe Dios donde. Delante de nuestros
+ojos, los dos sumergibles, Libertad e Igualdad aparecieron por babor
+de la isla de Santa Clara para aparecer por estribor, unos momentos
+más tarde. La guerras navales simuladas, que tendrán lugar más
+adelante, se podrán contemplar desde el monte Igeldo, pues tendrán
+lugar en mar abierto. Se espera que armadas de todo el orben acudan
+prestas a contemplar tal prodigio, que augura una nueva era en la que
+las batallas navales dejarán de ser los asuntos caballerosos que
+fueron en la época de nuestro Blas de Lezo para convertirse en juegos
+del escondite donde el que encuentra mata por la espalda. 
+
+Pero más interesante que lo que existe y se puede ver y tocar, lo que se
 muestra en la exhibición de trabajos de los estudiantes de Ingeniería
 Mecánica y Eléctrica de la Escuela de Peritos de la Universidad de
-Guipúzcoa es el futuro, un futuro lleno de luz, de rapidez, de unión
-entre los pueblos a través del telégrafo y quién sabe qué otras artes,
-donde se construirán torres que llegarán al cielo y donde los
-navíos metálicos llevarán la civilización a todos los lugares del
+Guipúzcoa es el futuro, un futuro lleno de luz eléctrica, de rapidez, de unión
+entre los pueblos y las gentes a través del telégrafo y quién sabe qué otras artes,
+donde se construirán torres que llegarán al cielo con metales que
+resistirán al orín y a todo tipo de empujes y donde los
+navíos metálicos, movidos por motores a vapor o quién sabe si
+eléctricos o dotados de una fuente de energía más poderosa e
+inagotable, llevarán la civilización a todos los lugares del 
 mundo, como ya sucede en Guinea y Conchinchina gracias al empeño,
 frugalidad y generosidad de nuestros granjeros e industriales
 bascongados, allí desplazados y que han vuelto brevemente para exponer
