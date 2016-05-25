@@ -358,7 +358,7 @@ comió y dijo. Y eso tratándose de un contubernio cuya ocultación no tenía m�
 que, quizás, el sustraerlo al conocimiento de facciosos y de algún
 carlista que todavía pueda quedar por estas tierras, que
 afortunadamente pocos son y los pocos que hubiere callados se hallan
-por lo que pudiera pasar.  
+por lo que pudiera pasar.
 
 Pero ningún signo ni rumor ha precedido a este anuncio, concluyendo,
 pues, que tales prodigios fueron obrados 
@@ -452,7 +452,9 @@ donde el ferrocarril sea incapaz de llegar, que todavía son muchas y
 variadas en nuestra tierra.
 
 Tras el recorrido por la exhibición estática, todos nos volvimos hacia
-la Concha, donde tuvo lugar la parada naval, que, entre navíos de
+la Concha, donde tuvo lugar la parada naval, incluyendo los globos
+procedentes de nuestra vecina Francia, evolucionaban en el cielo de la
+Concha asustando a las aves y admirando a los paisanos. Tal desfile, entre navíos de
 muchos palos y poderosos buques de guerra de la Armada, tuvo como
 estrella el pequeño, misterioso y sigiloso sumergible del doctor
 Monturiol, dos de los cuales, recientemente adquiridos por la Armada, ya
@@ -474,7 +476,9 @@ el caso, sea el impío y no el cristiano, y, como en el caso del
 sumergible del querido hermano Monturiol, el papel de la Real Sociedad
 Bascongada de Amigos del País, como de otras sociedades, no ha sido
 pequeño y es de ley reconocerlo aquí, en nuestras páginas, para todos
-nuestros lectores. 
+nuestros lectores.
+
+
 
 Pero más interesante que lo que existe y se puede ver y tocar, lo que se
 muestra en la exhibición de trabajos de los estudiantes de Ingeniería
