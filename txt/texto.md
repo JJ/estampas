@@ -419,7 +419,7 @@ donde proceden los artefactos que han traído la alegría al hogar del
 vascongado y la riqueza a sus gentes.
 
 Gentes cuyos representantes rodeaban la figura del Monarca y el
-príncipe de Asturias Don Enmanuel Filiberto, que, junto con los alcaldes, diputados
+príncipe de Asturias Don Manuel Filiberto, que, junto con los alcaldes, diputados
 generales, grandes maestros de las logias del Grande Oriente,
 autoridades civiles y militares, banqueros y presidentes de montepíos y jaunchos diversos y fueron
 recorriendo los diferentes establecimientos, admirándose de sus
