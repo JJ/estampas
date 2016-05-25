@@ -465,7 +465,16 @@ lugar en mar abierto. Se espera que armadas de todo el orben acudan
 prestas a contemplar tal prodigio, que augura una nueva era en la que
 las batallas navales dejarán de ser los asuntos caballerosos que
 fueron en la época de nuestro Blas de Lezo para convertirse en juegos
-del escondite donde el que encuentra mata por la espalda. 
+del escondite donde el que encuentra mata por la espalda.
+
+Pero "asko hil eta gutxi zerura", mueren muchos y pocos van al cielo,
+así que en tiempos difíciles como los que nos toca vivir es mejor que
+el que tenga que morder el polvo, o el cieno del fondo del mar, según
+el caso, sea el impío y no el cristiano, y, como en el caso del
+sumergible del querido hermano Monturiol, el papel de la Real Sociedad
+Bascongada de Amigos del País, como de otras sociedades, no ha sido
+pequeño y es de ley reconocerlo aquí, en nuestras páginas, para todos
+nuestros lectores. 
 
 Pero más interesante que lo que existe y se puede ver y tocar, lo que se
 muestra en la exhibición de trabajos de los estudiantes de Ingeniería
