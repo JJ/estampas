@@ -704,6 +704,25 @@ tardaba meses, ahora son sólo horas, donde antes había que sufrir las
 incomodidades de un vapor o la lentitud de un velero, ahora el comfort
 de un wagon-lit transportado por el aire.
 
+El tradicional corte de la cinta con los colores de la ikurriña ha
+sido el presidente foral, Serafín Baroja, acompañado del resto de los
+diputados, del Señor Rector de la Universidad de Guipúzcoa D. Miguel
+de Unamuno y, en lugar destacado, el señor Ingeniero Evaristo de
+Churruca.
+
+A él se debe la estructura a la que los dirigibles quedan varados, una
+torre de setenta metros de altura, una pirámide que pasa de los 40
+metros en la base, donde los pasajeros son recibidos amablemente,
+hasta los 10 metros en la parte más elevada, donde efectivamente
+atraca el dirigible. Cuando llegamos a la inauguración, el gran globo,
+con aspecto de ballena y que, visto desde su proa, parece un gran
+trébol, se bamboleaba de forma indolente, esperando ser cargado con
+autoridades y curiosos, invitados a la visita que, naturalmente, no
+nos llevará hasta su destino, sino a un simple paseo por la costa.
+
+Paseo que llevó a todos cuantos pudieron ocupar las ventanas y que fue
+regado con sidra de la cosecha y todo el pastel que pudimos deglutir. 
+
 
 
 
