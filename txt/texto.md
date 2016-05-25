@@ -537,7 +537,7 @@ isla de Santa Clara, a la que las potentes luminarias llegan, en días
 claros, y sin demasiada dificultad. 
 
 Para acompañarnos en esta primera iluminación de estas nuevas
-bombillas incandescentes, que así se denominan, nos ha acompañado
+bombillas incandescentes, que así se han dado en denominar, nos ha acompañado
 Agapito Alberdi, ingeniero eléctrico de la General Eléctrica
 Vascongada sita en el Valle del Trápaga, quien, tras una llamada
 telefónica desde las oficinas de nuestro Diario, accedió a atendernos
@@ -679,6 +679,30 @@ eminencia señor Palacio, que, desde hoy, se une a las maravillas que
 todo forastero en *Gran Tour* por Europa deberá visitar, so pena de
 perderse una de las grandes maravillas del mundo.
 
+
+## 1911 Estampa 8: Llegada del primer dirigible de línea regular San Sebastián-Santa Isabel
+
+Desde hoy y quizás para siempre, nuestros compatriotas estarán más
+cerca de nosotros gracias al dirigible de línea regular desde nuestra
+misma ciudad a Santa Isabel, allende los mares y en la provincia
+guineana de nuestro pais, donde, como es bien sabido, los
+industriales, granjeros y mineros vascuences son mayoría.
+
+Por eso tiene sentido que, si se ha de inaugurar una línea de
+transporte desde la metrópoli hasta las provincias más lejanas, se
+haga desde aquí, desde el mismo monte Igeldo, y no desde otros lugares
+como Madrid o Cartagena desde donde el interés por trasponer a tales
+distancias puede ser inferior o incluso nulo.
+
+Sólo dos días, dos, se demorarán los viajeros en cruzar mares,
+desiertos, las civilizadas urbes de nuestras provincias en el norte de
+África y el vacío salvaje de las junglas del golfo de Guinea, hasta
+llegar a Santa Isabel, en la isla de Fernando Póo, desde donde, por
+barco o tomando otro dirigible Torque, se podrán dirigir hasta el
+continente si es que ese es su destino y así lo desean. Donde antes se
+tardaba meses, ahora son sólo horas, donde antes había que sufrir las
+incomodidades de un vapor o la lentitud de un velero, ahora el comfort
+de un wagon-lit transportado por el aire.
 
 
 
