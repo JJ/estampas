@@ -92,7 +92,7 @@ fusilería y artillería de nuestras bravas
 tropas y marinería y salvaguarda de sus preciadas vidas. 
 
 
-## 1832, Estampa 2: Sinterización del wolframio, por el Illmo. Teniente Coronel José María de Álava Rodríguez Alburquerque
+## 1832, Estampa 2: Sinterización del wolframio, por el Illmo. Teniente Coronel José María de Alava Rodríguez Alburquerque
 
 Desde que en el año de nuestro señor de 1783 el Seminario Patriótico
 de Vergara dio a la humanidad dos nuevos metales, dos, desconocidos
