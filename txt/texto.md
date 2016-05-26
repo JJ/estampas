@@ -1,4 +1,4 @@
-## 1783, Estampa 1: Descubrimiento del volfram por los hermanos Elhúyar
+## 1783, Estampa 1: Descubrimiento del volfram por los hermanos Elhúyar. Por el Bachiller Joseph Ramos de Murúa, de Vergara
 
 Teniendo todo en consideración, el año 1783 ha sido un buen año para
 la química bascongada y, por ende, la hispana. En un año, dos nuevos y
