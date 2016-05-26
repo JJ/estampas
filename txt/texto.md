@@ -200,7 +200,8 @@ y, desde entonces, el más liberal y querido por sus tropas, como yo
 mismo pude comprobar no hace tanto, en una visita a los barracones de
 su batallón en San Sebastián. 
 
-O el eritronio, elemento que el ínclito Manuel del Río aisló y
+O quizás, olvidándonos de espadones, que no son el tema que nos ocupa,
+sería el eritronio el metal con el que harían tales imperdibles, elemento que el ínclito Manuel del Río aisló y
 que en nuestro misma cátedra de Metalurgia fue confirmado como tal,
 tras la negativa de los supuestos sabios europeos, que no veían en las
 muestras traídas de Nueva España novedad alguna, bien que no podían
