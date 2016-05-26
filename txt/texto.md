@@ -188,9 +188,19 @@ nunca bien ponderado Chavano a sus cabales y también al lugar, tras haber
 pasado toda la guerra contra sus compatriotas en lugar desconocido, lo
 que le libró, quizás, de represalia o quién sabe si de otras cuitas,
 pero no habría sido un reto, así que los pupilos de la cátedra, los
-Munibe, Elhúyar, Argaiz, Prin, Zabaleta, se pusieron a la tarea de
+Munibe, Elhúyar, Argaiz, Prin, Zabaleta, y por supuesto mis sobrinos
+los Álava, se pusieron a la tarea de
 crear uno, quizás media docena, de imperdibles para nuestra querida
-Reina. O el eritronio, elemento que el ínclito Manuel del Río aisló y
+Reina, a quien nunca le agradeceremos el haber acabado, junto con su
+egregio marido y por supuesto la ayuda de nuestros bravos militares
+que, con su arrojo y valor y por supuesto el mando de grandes como el
+Comandante Zumalacárregui, que luchó con denuedo vengando a su hermano
+Miguel Antonio, muerto por los absolutistas en prisión en el año 1814
+y, desde entonces, el más liberal y querido por sus tropas, como yo
+mismo pude comprobar no hace tanto, en una visita a los barracones de
+su batallón en San Sebastián. 
+
+O el eritronio, elemento que el ínclito Manuel del Río aisló y
 que en nuestro misma cátedra de Metalurgia fue confirmado como tal,
 tras la negativa de los supuestos sabios europeos, que no veían en las
 muestras traídas de Nueva España novedad alguna, bien que no podían
