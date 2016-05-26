@@ -101,19 +101,19 @@ Bergara sigue fulgurando en el firmamento de las capitales europeas,
 con todo el valle del Deba orbitando a su derredor como si de un
 sistema planetario se tratara.
 
-Y eso ha sucedido porque el rey nuestro señor Carlos el Tercero de su
+Y eso sucedió porque el rey nuestro señor Carlos el Tercero de su
 nombre, monarca que lo fue por aquella época y que todo patriota
 extraña y reza a Nuestro Señor para que lo tenga en su gloria,
-inspirado quizás por el lema de la Sociedad Bascongada, "De tres,
+inspirado quizás por el lema de la Sociedad Bascongada, "Los tres,
 uno", decidió mantener a la cuadrilla de los Elhúyar y el eminente
 Chavano juntos en el entonces seminario y ahora Universidad de la
 Tierra de Guipúzcoa, y dotó la plata necesaria para que levantara
 columnas la cátedra de Mineralogía y Metalurgia de la misma, donde
 decenas de bascongados y forasteros han adquirido conocimientos de
 química, mineralogía, siderurgia y todo lo que comprende arañar las
-extrañas de la madre Tierra y convertirlas en útiles para el comercio
+extrañas de la madre Tierra y convertir sus frutos en útiles para el comercio
 y la industria bascongada e hispana. Lo que estuvo a punto de no
-suceder, pues no bien el mundo conocía de la existencia del nuevo
+suceder de la forma más lógica, pues no bien el mundo conocía de la existencia del nuevo
 elemento nombrado por los Elhúyar, el monarca o en quien él delegare
 descubrió lo errado de su proceder al enviar a Juan José, el más
 avezado y experimentado de los hermanos, a Nueva Granada a cuidar,
@@ -128,9 +128,9 @@ zamoranos, y contra las que su ama y también su hermano no dejaron
 nunca de advertirle. Tuvo una corta, pero fructífera vida, trabajando
 hasta el final en el Laboratorio de Nuevos Metales cuyas columnas se
 levantaron tras los descubrimientos de platina y volframio y que
-dirigió Chavano hasta volver a su país de origen, una vez que tal país
+dirigió Chavano hasta volver, o ser devuelto por la fuerza, a su país de origen, una vez que tal país
 y el nuestro decidieron mandar a sus hijos a matarse los unos a los
-otros.
+otros,
 
 Fue en esa cátedra donde, a petición de su majestad Fernando el Séptimo,
 cuya vida y la de su esposa guarde Dios Nuestro Señor muchos años o
