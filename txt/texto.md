@@ -1,4 +1,4 @@
-## 1773, Estampa 1: Descubrimiento del volfram por los hermanos Elhúyar
+## 1783, Estampa 1: Descubrimiento del volfram por los hermanos Elhúyar
 
 Teniendo todo en consideración, el año 1783 ha sido un buen año para
 la química bascongada y, por ende, la hispana. En un año, dos nuevos y
@@ -15,7 +15,7 @@ ciudad devenirá una gran, moderna y cosmopolita urbe que, al lado de
 San Sebastián, Edimburgo, Berlín y París, fulgurará en el universo de
 las grandes capitales europeas. 
 
-"Irurac, Bat", "de tres, uno", es el lema de esta Sociedad patriótica
+"Irurac, Bat", "los tres, uno", es el lema de esta Sociedad patriótica
 y son tres las estrellas que iluminan el firmamento filosófico
 natural: Francisco Chavano y los hermanos Fausto y Juan José Elhúyar,
 todos ellos nacidos fuera de este País pero tan patriotas como si se
@@ -27,7 +27,7 @@ bascongada, se han unido para originar los dos nuevos metales que Dios
 dio a la Humanidad, pero que a modo de profetas del progreso y de la
 Ciencia, Francisco, Juan José y Fausto han revelado a la misma.  
 
-Y "Lan, Onari", "al buen trabajo", el otro lema de esta Sociedad que
+Y "Lan Onari", "al buen trabajo", el otro lema de esta Sociedad que
 premia al que nuestro ya compatriota Chavano ha hecho en un
 laboratorio que, según el ilustre científico sueco Tunborg, nada tiene
 que envidiar a los de las lejanas y quizás más ricas ciudades Uppsala y
@@ -398,7 +398,7 @@ de la Exposición Internacional.
 
 Previamente fuimos testigos de la recepción de objetos que
 participarían en la exposición, procedente de comerciantes de toda la
-tierra Guipuzcoana, de Basconia, de nuestras colonias en la
+tierra Guipuzcoana, de Euscal-herria, de nuestras colonias en la
 Conchinchina, Marruecos y Guinea y de las recientemente independizadas
 república de Cuba y de Filipinas. La paz de nuestro presidente Prim y
 de nuestro soberano Amadeo de Saboya ha traído prosperidad a todas las
@@ -413,7 +413,7 @@ del valle Arriastún, que, a estas alturas de este afortunado siglo,
 alcanza ya a nuestra ciudad y al propio Bilbao, pese a hallarse a una
 distancia considerable del río Deba, distancia aminorada por los
 expresos que los unen entre sí en meras horas, como ya unen entre sí
-Azkoitia, Vergara, Eibar, Plentzia, Ermua y todas las localidades de
+Azcoitia, Vergara, Eibar, Plencia, Ermua y todas las localidades de
 donde proceden los artefactos que han traído la alegría al hogar del
 vascongado y la riqueza a sus gentes.
 
@@ -431,7 +431,7 @@ muestra a propios y extraños, para inspirar a generaciones venideras.
 Multitudes se admiraban ante máquinas herramientas que, según
 afirmaban carteles bien rotulados en su frontispicio, incluían
 fresadoras de carburo volfránico para crear los cañones más longevos y
-las piezas más precisas que precisa toda la maquinaria y las fábricas
+las piezas más precisas que necesita toda la maquinaria y las fábricas
 modernas. Enormes motores eléctricos que emitían alegremente
 chispazos, colosos de vapor cuyas vaharadas sobrecogían a la multitud
 y cuyo propósito sólo se podía entrever y relucientes aparatos ópticos
