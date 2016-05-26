@@ -506,7 +506,7 @@ punta de los dedos.
 
 ## 1893 Estampa 6: La Concha iluminada con bombillas de filamento de wolframio
 
-Los Easonenses y paisanos del resto del señorío de Guipúzcoa H se pueden considerar los seres más afortunados del
+Los Easonenses y paisanos del resto del señorío de Guipúzcoa se pueden considerar los seres más afortunados del
 universo, y si no, del País Vascongado. A la donosura de sus gentes y
 la belleza de sus mujeres, se añade el talento de sus sabios y también
 la gracia de sus playas, admiración de propios y extraños, que todos
