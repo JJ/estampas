@@ -125,7 +125,9 @@ extraños hasta su muerte en 1796 debida, posiblemente, a la inveterada
 manía que
 poseía de degustar todas las sustancias que salían de sus crisoles
 zamoranos, y contra las que su ama y también su hermano no dejaron
-nunca de advertirle. Tuvo una corta, pero fructífera vida, trabajando
+nunca de advertirle, como nos contaban los más veteranos del lugar en
+mi estancia, junto con mis hermanos, en tal Seminario. 
+Tuvo una corta, pero fructífera vida, trabajando
 hasta el final en el Laboratorio de Nuevos Metales cuyas columnas se
 levantaron tras los descubrimientos de platina y volframio y que
 dirigió Chavano hasta volver, o ser devuelto por la fuerza, a su país de origen, una vez que tal país
@@ -215,7 +217,7 @@ dedicarse y de las que daremos buena cuenta, en la medida que lo
 conozcamos y podamos contarlo, en estas páginas. 
 
 Por eso, cuando os pregunten qué ha hecho España por Europa, sólo
-tenéis que contestar "Mi señor, ha hecho Guipúzcoa"
+tenéis que contestar "Mi señor, ha hecho Guipúzcoa".
 
 ## 1862, Estampa 3: Inauguración de la Escuela Especial de Electricidad
 
