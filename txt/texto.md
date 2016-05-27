@@ -405,7 +405,7 @@ Bélgica, ya podrán ser vendidos y usados en todo el mundo, por lo que
 las fábricas de Ermua, Eibar y Guernica no darán abasto para
 proporcionar a la clientela lo que desean. 
 
-## 1873 Estampa 5: Amadeo de Saboya inaugura la exposición universal de San Sebastián, por José Manterola, del Diario de San Sebastián, Periódico de Noticias
+## 1873 Estampa 5: Amadeo de Saboya inaugura la exposición universal de San Sebastián, por D. Benito de Alzola y Minondo, del Diario de San Sebastián, Periódico de Noticias
 
 Que al lector no le quepa la menor duda de que esta exposición
 universal será recordada en los años venideros como la mayor, la más
