@@ -701,7 +701,7 @@ todo forastero en *Gran Tour* por Europa deberá visitar, so pena de
 perderse una de las grandes maravillas del mundo.
 
 
-## 1911 Estampa 8: Llegada del primer dirigible de línea regular San Sebastián-Santa Isabel
+## 1911 Estampa 8: Llegada del primer dirigible de línea regular San Sebastián-Santa Isabel, por Wenceslao Orbea para Novedades
 
 Desde hoy y quizás para siempre, nuestros compatriotas estarán más
 cerca de nosotros gracias al dirigible de línea regular desde nuestra
