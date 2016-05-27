@@ -230,11 +230,11 @@ conozcamos y podamos contarlo, en estas páginas.
 Por eso, cuando os pregunten qué ha hecho España por Europa, sólo
 tenéis que contestar "Mi señor, ha hecho Guipúzcoa".
 
-## 1862, Estampa 3: Inauguración de la Escuela Especial de Electricidad
+## 1862, Estampa 3: Se inaugura la Escuela Especial de Electricidad, por Camilo Villavaso, en Irurac Bat
 
 Y este mensaje acaba de llegar: en el momento que empiezo a escribir
-estas líneas se ha inaugurado la Escuela Especial de Electricidad en
-Donosti.
+estas líneas se acaba de inaugurar la Escuela Especial de Electricidad en
+San Sebastián.
 
 Porque las ciencias adelantan que es una barbaridad y en nuestra
 redacción ya somos capaces de enterarnos, quizás no de conocer, lo que
