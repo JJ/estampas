@@ -237,7 +237,7 @@ estas líneas se acaba de inaugurar la Escuela Especial de Electricidad en
 San Sebastián.
 
 Porque las ciencias adelantan que es una barbaridad y en nuestra
-redacción ya somos capaces de concer, quizás no de comprender, lo que
+redacción ya somos capaces de conocer, quizás no de comprender, lo que
 ocurre en el ancho mundo en el mismo momento en el que ocurre. El
 telégrafo de Salvá no nos salvó de la invasión gabacha, si nos permiten
 esta pequeña chanza, pero sí nos salvó de males mayores, de las
@@ -336,7 +336,8 @@ y continúa, como es bien sabido, afirmando que
 
 Siendo que estamos en tiempos más ilustrados, y, afortunadamente, no
 tan pobres, y habiendo el país bascongado dado lugar y origen al valle
-Arriastún, no por tener esta piedra volframio origen en él, sino por
+Arriastún, por no mencionar a los altos hornos que ya jalonan la
+periferia de nuestro Bilbao, no por tener esta piedra volframio origen en él, sino por
 ser el lugar donde en todo tipo de cosas se convierte, ¿no será
 obligación de los sabios, capataces, menestrales y señores
 aprovecharlo todo ello para mayor lustre, gloria y felicidades de
@@ -404,7 +405,7 @@ Bélgica, ya podrán ser vendidos y usados en todo el mundo, por lo que
 las fábricas de Ermua, Eibar y Guernica no darán abasto para
 proporcionar a la clientela lo que desean. 
 
-## 1873 Estampa 5: Amadeo de Saboya inaugura la exposición universal de San Sebastián.
+## 1873 Estampa 5: Amadeo de Saboya inaugura la exposición universal de San Sebastián, por José Manterola, del Diaro de San Sebastián, Periódico de Noticias
 
 Que al lector no le quepa la menor duda de que esta exposición
 universal será recordada en los años venideros como la mayor, la más
@@ -498,8 +499,6 @@ Bascongada de Amigos del País, como de otras sociedades, no ha sido
 pequeño y es de ley reconocerlo aquí, en nuestras páginas, para todos
 nuestros lectores.
 
-
-
 Pero más interesante que lo que existe y se puede ver y tocar, lo que se
 muestra en la exhibición de trabajos de los estudiantes de Ingeniería
 Mecánica y Eléctrica de la Escuela de Peritos de la Universidad de
@@ -524,7 +523,7 @@ tierra bascongada, está mucho más cerca y casi podemos tocarlo con la
 punta de los dedos. 
 
 
-## 1893 Estampa 6: La Concha iluminada con bombillas de filamento de wolframio
+## 1893 Estampa 6: La Concha iluminada con bombillas de filamento de wolframio, por Serafín Baroja, para La Unión Liberal
 
 Los Easonenses y paisanos del resto del señorío de Guipúzcoa se pueden considerar los seres más afortunados del
 universo, y si no, del País Vascongado. A la donosura de sus gentes y
@@ -535,7 +534,8 @@ estación del Norte o de los paquebotes en el muelle de Pasaia y,
 agitando abanicos y enarbolando sombrillas, acaban en nuestra playa de
 la Concha tomando baños y despejando esos mismos calores de sus
 canillas y, posiblemente, pantorrillas por el método de sumergirlas en
-el líquido elemento.
+el líquido elemento. Nunca más allá, porque *sua eta ura belaunetik
+behera*, como es bien sabido. 
 
 Y es que los forasteros siguen viniendo a nuestros hoteles, casas de
 huéspedes y, cuando el calor realmente aprieta, hasta a fondas y
