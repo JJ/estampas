@@ -502,7 +502,8 @@ nuestros lectores.
 Pero más interesante que lo que existe y se puede ver y tocar, lo que se
 muestra en la exhibición de trabajos de los estudiantes de Ingeniería
 Mecánica y Eléctrica de la Escuela de Peritos de la Universidad de
-Guipúzcoa es el futuro, un futuro lleno de luz eléctrica, de rapidez, de unión
+Guipúzcoa en Vergara es el futuro, un futuro imaginado y luego llevado
+a cabo por gentes como mi hermano Pablo, un futuro lleno de luz eléctrica, de rapidez, de unión
 entre los pueblos y las gentes a través del telégrafo y quién sabe qué otras artes,
 donde se construirán torres que llegarán al cielo con metales que
 resistirán al orín y a todo tipo de empujes y donde los
