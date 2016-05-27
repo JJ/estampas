@@ -237,7 +237,7 @@ estas líneas se acaba de inaugurar la Escuela Especial de Electricidad en
 San Sebastián.
 
 Porque las ciencias adelantan que es una barbaridad y en nuestra
-redacción ya somos capaces de enterarnos, quizás no de conocer, lo que
+redacción ya somos capaces de concer, quizás no de comprender, lo que
 ocurre en el ancho mundo en el mismo momento en el que ocurre. El
 telégrafo de Salvá no nos salvó de la invasión gabacha, si nos permiten
 esta pequeña chanza, pero sí nos salvó de males mayores, de las
@@ -252,16 +252,23 @@ necesita, razón y libertad que necesitan a veces los rifles de gente
 como el comandante Zumalacárregui del primer batallón de Guipúzcoa,
 que dio buena cuenta del cura Merino y cuantos chiquilicuatres como él
 intentaron, sin mucho éxito, sublevar a algunos elementos levantiscos
-y desafectos de los que, afortunadamente, pocos quedan ya. 
+y desafectos de los que, afortunadamente, pocos quedan ya.
 
-Como conocimos, casi al instante, las gratas noticias de los
+Como podemos agradecerle a la Real Sociedad Bascongada de Amigos del
+País, que no sólo nos dio metales y glorias, sino también el lema de
+nuestra gaceta, que llega todos los días a su ciudad para que ustedes
+conozcan lo que sucede aquí en Bilbao, allí en San Sebastián y acullá
+en Vitoria. 
+
+Por ese telégrafo  conocimos, casi al instante, las gratas noticias de los
 descubrimientos de menas de wolframita en nuestras posesiones de
 ultramar en la Conchinchina, presencia confirmada por los eminentes
 y doctos Eguía y Fernández de la cátedra de Mineralogía de la
 Universidad en Vergara, menas que alimentarán a nuestros señores volframones
 por años sin término y con ellos mantendrán la paz y aumentarán la
 prosperidad de vecinos al norte y al sur del Ebro y al este y el oeste
-del Deba. 
+del Deba. Y, un poco más tarde, ustedes a través de nuestra
+publicación. 
 
 Y este nuevo edificio viene ampliando el Instituto Provincial de Guipúzcoa con unas instalaciones
 en San Sebastián se añade otro vértice al triángulo arriastun vascongado, el
