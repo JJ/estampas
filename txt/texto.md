@@ -298,7 +298,7 @@ una máquina herramienta movida por la electricidad, un tendido
 telegráfico erecto y orgulloso, en cualquier parte del mundo, podréis
 decir, ufanos, "Buen trabajo de un guipuzcoano es".
 
-## 1866 Estampa 4: Se prueban las primeras balas con núcleo de tungsteno
+## 1866 Estampa 4: Se prueban las primeras balas con núcleo de tungsteno, por Regino de de Basterrechea, para El Eco Bilbaíno
 
 En estos tiempos tenebrosos, en que el arte de matar, sin ser
 considerada una de las bellas artes, sí es un arte aplicada, hay
