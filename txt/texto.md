@@ -629,7 +629,7 @@ pero que él patriota vascongado es y nunca dirá lo que sabe sobre las
 bombillas, que es mucho y variado y profundo.
 
 
-## 1895 Estampa 7: Inauguración del orbe y ferrocarril aéreo de la isla de Santa Clara.
+## 1895 Estampa 7: Inauguración del orbe y ferrocarril aéreo de la isla de Santa Clara, por D. Benito de Alzola para la revista  Euskal-Erria. 
 
 Dícese que toda gran ciudad tiene un gran monumento que la
 identifique. Nueva York tiene su estatua de la Libertad, bien que no
