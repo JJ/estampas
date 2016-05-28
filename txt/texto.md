@@ -680,7 +680,7 @@ conejos en conejera.
 Bien está lo que bien acaba, sin embargo, y la dual inauguración de
 ambos portentos comenzó en la estación del ferrocarril, más allá de la
 Perla, donde, erigido sobre pilotes que cruzaban la bahía, y poniendo
-un marco a la misma, la vía parecía una flecha que apuntaba a un
+un marco a la misma, la vía parecía una flecha que apuntaba al
 inmenso orbe, de más de doscientos metros donde, en relieve, se
 distinguen todas las tierras de nuestro planeta y, en diferentes
 colores logrados gracias a los metales que han dado nombre a nuestra
@@ -744,7 +744,7 @@ diputados, del Señor Rector de la Universidad de Guipúzcoa D. Miguel
 de Unamuno y, en lugar destacado, el señor Ingeniero Evaristo de
 Churruca.
 
-A él se debe la estructura a la que los dirigibles quedan varados, una
+A tan sabio ingeniero vascuence él se debe la estructura a la que los dirigibles quedan varados, una
 torre de setenta metros de altura, una pirámide que pasa de los 40
 metros en la base, donde los pasajeros son recibidos amablemente,
 hasta los 10 metros en la parte más elevada, donde efectivamente
