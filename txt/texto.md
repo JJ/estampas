@@ -702,7 +702,8 @@ además, un eficacísimo pararrayos, así que a su función simbólica se
 le auna una eminente función práctica.
 
 Meros minutos, y sólo un puñado de pesetas, separan al turista que
-pasea por la bahía de admirar desde su polo sur este orbe de la
+pasea por la bahía de admirar desde su polo sur este orbe y
+ferrocarril de la
 eminencia señor Palacio, que, desde hoy, se une a las maravillas que
 todo forastero en *Gran Tour* por Europa deberá visitar, so pena de
 perderse una de las grandes maravillas del mundo.
