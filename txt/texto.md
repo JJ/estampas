@@ -708,19 +708,22 @@ todo forastero en *Gran Tour* por Europa deberá visitar, so pena de
 perderse una de las grandes maravillas del mundo.
 
 
-## 1911 Estampa 8: Llegada del primer dirigible de línea regular San Sebastián-Santa Isabel, por Wenceslao Orbea para Novedades
+## 1911 Estampa 8: Vuelo inaugural del primer dirigible de línea regular San Sebastián-Santa Isabel, por Wenceslao Orbea para Novedades
 
-Desde hoy y quizás para siempre, nuestros compatriotas estarán más
+Regocijémonos todos porque, desde hoy y quizás para siempre, nuestros
+compatriotas en Fernando Póo estarán más
 cerca de nosotros gracias al dirigible de línea regular desde nuestra
-misma ciudad a Santa Isabel, allende los mares y en la provincia
+misma ciudad a Santa Isabel en esa isla, allende los mares y en la provincia
 guineana de nuestro pais, donde, como es bien sabido, los
-industriales, granjeros y mineros vascuences son mayoría.
+industriales, granjeros y mineros vascuences son, si no mayoría,
+porque no tengo las cuentas, sí los más laboriosos, probos y prósperos
+de la colonia. Y, entre ellos, mis paisanos. 
 
 Por eso tiene sentido que, si se ha de inaugurar una línea de
 transporte desde la metrópoli hasta las provincias más lejanas, se
-haga desde aquí, desde el mismo monte Igeldo, y no desde otros lugares
+haga desde nuestro país, desde el mismo monte Igeldo, y no desde otros lugares
 como Madrid o Cartagena desde donde el interés por trasponer a tales
-distancias puede ser inferior o incluso nulo.
+distancias puede ser inferior o incluso ninguno.
 
 Sólo dos días, dos, se demorarán los viajeros en cruzar mares,
 desiertos, las civilizadas urbes de nuestras provincias en el norte de
@@ -728,11 +731,14 @@ desiertos, las civilizadas urbes de nuestras provincias en el norte de
 llegar a Santa Isabel, en la isla de Fernando Póo, desde donde, por
 barco o tomando otro dirigible Torque, se podrán dirigir hasta el
 continente si es que ese es su destino y así lo desean. Donde antes se
-tardaba meses, ahora son sólo horas, donde antes había que sufrir las
+tardaba meses enteros, ahora son sólo horas, donde antes había que sufrir las
 incomodidades de un vapor o la lentitud de un velero, ahora el comfort
-de un wagon-lit transportado por el aire.
+de un wagon-lit transportado por el aire. Y todo por el mismo precio
+de un vapor. 
 
 El tradicional corte de la cinta con los colores de la ikurriña ha
+tenido lugar tras un sentido aurresku, y lo ha
+realizado 
 sido el presidente foral, Serafín Baroja, acompañado del resto de los
 diputados, del Señor Rector de la Universidad de Guipúzcoa D. Miguel
 de Unamuno y, en lugar destacado, el señor Ingeniero Evaristo de
