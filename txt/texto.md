@@ -738,25 +738,37 @@ de un wagon-lit transportado por el aire. Y todo por el mismo precio
 de un vapor. 
 
 El tradicional corte de la cinta con los colores de la ikurriña ha
-tenido lugar tras un sentido aurresku, y lo ha
+tenido lugar tras un sentido *aurresku*, y lo ha
 realizado 
 sido el presidente foral, Serafín Baroja, acompañado del resto de los
 diputados, del Señor Rector de la Universidad de Guipúzcoa D. Miguel
 de Unamuno y, en lugar destacado, el señor Ingeniero Evaristo de
 Churruca.
 
-A tan sabio ingeniero vascuence él se debe la estructura a la que los dirigibles quedan varados, una
-torre de setenta metros de altura, una pirámide que pasa de los 40
+A tan sabio ingeniero vascuence, a él y al equipo de eminencias que dirige, se debe la estructura a la que los dirigibles quedan varados, una
+torre de setenta metros de altura, una pirámide que pasa de los cuarenta
 metros en la base, donde los pasajeros son recibidos amablemente,
-hasta los 10 metros en la parte más elevada, donde efectivamente
+hasta los diez metros en la parte más elevada, donde efectivamente
 atraca el dirigible. Cuando llegamos a la inauguración, el gran globo,
-con aspecto de ballena y que, visto desde su proa, parece un gran
+con aspecto de ballena si las ballenas flotaran en el éter, lo que no parece que vaya a suceder próximamente, y que, visto desde su proa, parece un gran
 trébol, se bamboleaba de forma indolente, esperando ser cargado con
 autoridades y curiosos, invitados a la visita que, naturalmente, no
 nos llevará hasta su destino, sino a un simple paseo por la costa.
 
 Paseo que llevó a todos cuantos pudieron ocupar las ventanas y que fue
-regado con sidra de la cosecha y todo el pastel que pudimos deglutir. 
+regado con sidra de la cosecha y toda la bizcocha que pudimos
+deglutir. *Tour* desde el que pudimos ver, al principio, nada más
+desamarrarnos, el recinto de la exposición universal, donde figuritas
+pequeñas como laboriosas hormigas se movían, muy cerca del ferrocarril
+de juguete que parecía, junto con el orbe en la isla de Santa Clara,
+esa atracción de feria en el que los forzudos golpean una palanca
+hasta dar en la campana al final, forzudo que tendría el tamaño de un
+coloso y estaría en el mismo Ayete y que quizás podría haberse
+entretenido, entre golpe y golpe, en agarrar el dirigible que nos
+transportaba a modo de cachiporra. 
+
+Nuestro periplo, arrullado por los motores Hispano Suiza 7A de 140
+caballos, continuó hacia el sur 
 
 
 
