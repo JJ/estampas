@@ -803,12 +803,12 @@ estos casos, mencionando la fe en el progreso, el futuro prometedor y
 la gloria del pueblo vascuence. Fui, sin embargo, despertado de mi
 sopor por la voz estentórea del señor Unamuno, despertador
 inmisericorde de generaciones de estudiantes en Vergara y aquí mismo,
-en la Bella y Espabilada Easo, justo a tiempo de oirle decir.
+en la Bella y Espabilada Easo, justo a tiempo de oírle decir:
 
--Mientras Europa muje y marcha al trote para embestir su testuz en
+-Mientras Europa muge y marcha al trote para embestir su testuz en
 otro fragmento de Europa, yo les digo: ¡Que luchen ellos! Mientras
 tanto, nosotros inventaremos, y, en vez de quedar ociosos y
-desmirridos por la falta de empleo de nuestro ingenio, exploraremos,
+desmirriados por la falta de empleo de nuestro ingenio, exploraremos,
 viajaremos y, sobre todo, viviremos mientras ellos se destruyen en
 cuerpo y en espíritu.
 
