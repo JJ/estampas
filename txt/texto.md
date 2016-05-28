@@ -572,7 +572,7 @@ las partes, hacer lo mismo con mi al parecer conocido hijo Pío, que
 ustedes, por cierto, pueden leer esporádicamente en estas mismas
 páginas. 
 
-Antes de tales chiquitos me expuso a qué se debía tan grande y clara
+Antes del susodicho chiquiteo me expuso a qué se debía tan grande y clara
 luz y cómo estas bombillas eran muy superiores a las que en otros
 lugares se estaban usando. Mientras que en Europa y en los Estados
 Unidos de América, un tal Thomas Alva Edison consiguió que,
