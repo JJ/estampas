@@ -768,7 +768,34 @@ entretenido, entre golpe y golpe, en agarrar el dirigible que nos
 transportaba a modo de cachiporra. 
 
 Nuestro periplo, arrullado por los motores Hispano Suiza 7A de 140
-caballos, continuó hacia el sur 
+caballos, continuó hacia el sur, con el sonido motriz bajando dos
+octavas debido al esfuerzo de superar el viento en contra, y en lo que
+se tarda en tomar unos piscolabis y hablar con un párroco, un gran
+maestre de la logia de Durango y un comandante del segundo batallón de
+Guinea, nos adentrábamos en Azcoitia, donde el humo procedente de las
+fábricas y fundiciones, y en el que cabalgaban, quizás, los
+caballeritos a modo de espíritus o fantasmas que quisieran saludarnos
+o, simplemente, esperar a que nosotros, el país todo, les agradeciera
+haber llegado hasta este siglo como lo hemos hecho. Sea quizás un
+viento lateral o cualquier otro evento atmosférico, sea que el
+dirigible todo quiso reverenciar a los caballeritos con un aurresku,
+hubo un pequeño cabeceo que se solucionó volviendo momentáneamente a
+nuestros asientos, donde fuimos agasajados, una vez más, por
+camareros, algunos de ellos fortachones guineanos, que en bandejas
+portaban los productos de la tierra para que nosotros, en el cielo,
+ascendiéramos a alturas todavía mayores con su deglución. 
+
+Que fue, por cierto, todo el gozo que pudimos extraer el resto del
+viaje. Al llegar a Vergara, con los aires calmados y el globo volando,
+finalmente, en línea recta, nos rodearon nieblas y fumarolas diversas
+que nos impidieron ver nada durante el resto del viaje, ni el Deba, ni
+Eibar, nada de ellos se reveló ante nuestros ojos; los humos que fluían de las
+chimeneas nos impidieron ver las fábricas, y los paisanos, que nos
+consta que se habían reunido en altozanos y atalayas para ver pasar a
+nuestra nave, se tendrán que contentar con ver las hermosas imágenes
+que ilustrarán las páginas 5 a 8 de este ejemplar de Novedades. 
+
+
 
 
 
