@@ -530,7 +530,8 @@ punta de los dedos.
 ## 1893 Estampa 6: La Concha iluminada con bombillas de filamento de wolframio, por Serafín Baroja, para La Unión Liberal
 
 Los Easonenses y paisanos del resto del señorío de Guipúzcoa se pueden considerar los seres más afortunados del
-universo, y si no, del País Vascongado. A la donosura de sus gentes y
+universo, y si no, del País Vascongado. A la donosura de sus gentes,
+la laboriosidad de sus trabajadores y
 la belleza de sus mujeres, se añade el talento de sus sabios y también
 la gracia de sus playas, admiración de propios y extraños, que todos
 los años, cuando entran las calores, bajan de los trenes en la
@@ -552,7 +553,7 @@ precio es sorpresa o premio que se reserva al atrevido viajero que
 llegue al lugar, equipaje a cuestas y la ilusión de, al día siguiente,
 viajar a la Concha.
 
-Pero ya no tiene que esperar al día siguiente. Gracias a la
+Pero ya no tiene que esperar a las luces día siguiente. Gracias a la
 iluminación con que la corporación donostiarra ha festoneado todo el
 paseo de la Concha, desde el Casino hasta la Perla e incluso más allá,
 los bañistas podrán tomar las aguas noche y día, mientras que el
@@ -566,7 +567,10 @@ Agapito Alberdi, ingeniero eléctrico de la General Eléctrica
 Vascongada sita en el Valle del Trápaga, quien, tras una llamada
 telefónica desde las oficinas de nuestro Diario, accedió a atendernos
 sin más coste que chiquitear tras el *tour* con cargo a
-nuestros dilectos lectores.
+nuestros dilectos lectores y la promesa de, cuando convenga a todas
+las partes, hacer lo mismo con mi al parecer conocido hijo Pío, que
+ustedes, por cierto, pueden leer esporádicamente en estas mismas
+páginas. 
 
 Antes de tales chiquitos me expuso a qué se debía tan grande y clara
 luz y cómo estas bombillas eran muy superiores a las que en otros
