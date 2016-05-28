@@ -298,14 +298,14 @@ una máquina herramienta movida por la electricidad, un tendido
 telegráfico erecto y orgulloso, en cualquier parte del mundo, podréis
 decir, ufanos, "Buen trabajo de un guipuzcoano es".
 
-## 1866 Estampa 4: Se prueban las primeras balas con núcleo de tungsteno, por Regino de de Basterrechea, para El Eco Bilbaíno
+## 1866 Estampa 4: Se prueban las primeras balas con núcleo de tungsteno, por Regino de Basterrechea, para El Eco Bilbaíno
 
 En estos tiempos tenebrosos, en que el arte de matar, sin ser
 considerada una de las bellas artes, sí es un arte aplicada, hay
-precisamente que aplicarse en hacerlo más y mejor que el que se
+precisamente que aplicarse en crear los instrumentos para hacerlo más y mejor que el que se
 encuentra enfrente con parecidas y aviesas intenciones.
 
-Pero las reglas que rigen el orbe no las escribimos los vizcaínos ni el ser humano y, en
+Porque las reglas que rigen el orbe no las escribimos los vizcaínos ni el ser humano y, en
 estos tiempos más iluminados en los que nuevos aires de libertad
 soplan por todas las Españas gracias a la elevación al poder del
 Maestro Sublime Perfecto y también Excelentísimo Sr. Presidente del
@@ -313,7 +313,7 @@ Consejo Juan Prim, que
 rige ahora con recta mano los destinos de nuestra patria, los
 vizcaínos y todo vecino de tierra de garbanzos tiene que ganarse la
 vida y la hacienda de alguna forma, aún a costa de crear artilugios
-que, eventualmente, acaben segando, quizás también salvando, vidas de
+que, eventualmente, acaben segando, pero quizás también salvando, vidas de
 otros hijos de la Naturaleza. Como dijo nuestro sabio Valentín de
 Foronda, citando a "aquél autor francés":
 
@@ -334,36 +334,39 @@ y continúa, como es bien sabido, afirmando que
     población [...] y su ha de haber consiste en un solo ramo, (aunque
     considerable), que es el hierro.
 
-Siendo que estamos en tiempos más ilustrados, y, afortunadamente, no
+Siendo que estamos en tiempos más pródigos en metales, y, afortunadamente, no
 tan pobres, y habiendo el país bascongado dado lugar y origen al valle
 Arriastún, por no mencionar a los altos hornos que ya jalonan la
 periferia de nuestro Bilbao, no por tener esta piedra volframio origen en él, sino por
 ser el lugar donde en todo tipo de cosas se convierte, ¿no será
-obligación de los sabios, capataces, menestrales y señores
+obligación de los sabios, capataces, menestrales y señores ferrones
 aprovecharlo todo ello para mayor lustre, gloria y felicidades de
 nuestra Monarca y, por ende, de sus súbditos?
 	
 Sirva esto como introito, o quizás disculpa, de la noticia que nos
 ocupa, que no es otra que la salida de la fábrica de Placencia de los
-primeros proyectiles especiales con el marchamo o prueba de la misma y
-las pruebas de disparo hechas con las mismas. Y decimos especiales
-aunque nadie ha sabido especificar su especialidad, pero sí que son
+primeros proyectiles privilegiados con el marchamo o prueba de la misma y
+las pruebas de disparo hechas con las mismas. No hemos sido capaces de
+encontrar la carta de privilegio que los protege, pero los bautizamos
+como especiales
+aunque nadie ha sabido especificar su especialidad, porque se afirma que son
 capaces de penetrar chapas, corazas y cuanto obstáculo se ponga en su
 camino, cuando se disparen con un fusil tal como el Dreyse o
 Chassepot, al que se parece el que, efectivamente, usó el oficial que
 efectuó los disparos. En las mismas pruebas de la fábrica de Placencia, esta persona
 puede atestiguar que el hueco ocasionado en una pared de piedra fue
-como si de una culebrina hubiera sido disparada, cuando fue un vulgar
+como si una culebrina hubiera sido disparada, cuando fue un vulgar
 fusil de la fábrica de Oviedo el que lo expulsó.
 
 De la misma forma que, en presencia de autoridades, capitostes y
 turiferarios diversos, nadie supo decirme quién, de entre todas las
 eminencias y profesores de Vergara, de San Sebastián, hasta de Bilbao,
-quién y dónde realizó tal proeza y de dónde salió. Nadie en todo el
-valle Arriastún escuchó
-disparos más allá de lo habitual, nadie vislumbró carros y carretas
+quién y dónde o qué grupo fue capaz de barruntar tal proeza metálica y de dónde salió. Nadie en todo el
+valle Arriastún, de Durango a Elgoibar y hasta Mondragón, escuchó
+disparos o martillazos, más allá de lo habitual, nadie vislumbró carros y carretas
 cargados hasta las trancas entrar y salir de ningún
-establecimiento. 
+establecimiento ni un trasiego inusitado en la Cátedra de Metalurgia
+en Vergara. 
 
 Porque lo que pertenece y es propio de las meninges de las
 personas se puede ocultar mientras permanezca en tales meninges, pero
