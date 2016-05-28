@@ -709,7 +709,7 @@ todo forastero en *Gran Tour* por Europa deberá visitar, so pena de
 perderse una de las grandes maravillas del mundo.
 
 
-## 1911 Estampa 8: Vuelo inaugural del primer dirigible de línea regular San Sebastián-Santa Isabel, por Wenceslao Orbea para Novedades
+## 1911 Estampa 8: Vuelo inaugural del "Manuel Iradier", dirigible de línea regular San Sebastián-Santa Isabel, por Wenceslao Orbea para Novedades
 
 Regocijémonos todos porque, desde hoy y quizás para siempre, nuestros
 compatriotas en Fernando Póo estarán más
@@ -794,6 +794,9 @@ chimeneas nos impidieron ver las fábricas, y los paisanos, que nos
 consta que se habían reunido en altozanos y atalayas para ver pasar a
 nuestra nave, se tendrán que contentar con ver las hermosas imágenes
 que ilustrarán las páginas 5 a 8 de este ejemplar de Novedades. 
+
+Fue en esta calma chicha cuando empezaron los discursos de los
+próceres. 
 
 
 
