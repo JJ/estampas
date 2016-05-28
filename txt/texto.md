@@ -796,7 +796,30 @@ nuestra nave, se tendrán que contentar con ver las hermosas imágenes
 que ilustrarán las páginas 5 a 8 de este ejemplar de Novedades. 
 
 Fue en esta calma chicha cuando empezaron los discursos de los
-próceres. 
+próceres. Aunque este cronista ha de reconocer que cayó en los brazos
+de Morfeo una o dos veces durante las palabras del Illmo. señor
+Baroja, no creo que tal discurso variara lo más mínimo del habitual en
+estos casos, mencionando la fe en el progreso, el futuro prometedor y
+la gloria del pueblo vascuence. Fui, sin embargo, despertado de mi
+sopor por la voz estentórea del señor Unamuno, despertador
+inmisericorde de generaciones de estudiantes en Vergara y aquí mismo,
+en la Bella y Espabilada Easo, justo a tiempo de oirle decir.
+
+-Mientras Europa muje y marcha al trote para embestir su testuz en
+otro fragmento de Europa, yo les digo: ¡Que luchen ellos! Mientras
+tanto, nosotros inventaremos, y, en vez de quedar ociosos y
+desmirridos por la falta de empleo de nuestro ingenio, exploraremos,
+viajaremos y, sobre todo, viviremos mientras ellos se destruyen en
+cuerpo y en espíritu.
+
+A lo que el gerente de La Exploradora, que también viajaba con
+nosotros, exclamó
+
+-¡Con las armas que nosotros les vendemos!
+
+Lo que despertó la carcajada y el regocijo de toda la concurrencia. En
+ese espíritu de jolgorio y buena hermandad, concluimos el viaje sin
+más novedad. 
 
 
 
