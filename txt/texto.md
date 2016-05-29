@@ -772,7 +772,7 @@ caballos, continuó hacia el sur, con el sonido motriz bajando dos
 octavas debido al esfuerzo de superar el viento en contra, y en lo que
 se tarda en tomar unos piscolabis y hablar con un párroco, un gran
 maestre de la logia de Durango y un comandante del segundo batallón de
-Guinea, nos adentrábamos en Azcoitia, donde el humo procedente de las
+Guinea, nos adentrábamos en el cielo de Azcoitia, donde el humo procedente de las
 fábricas y fundiciones, y en el que cabalgaban, quizás, los
 caballeritos a modo de espíritus o fantasmas que quisieran saludarnos
 o, simplemente, esperar a que nosotros, el país todo, les agradeciera
