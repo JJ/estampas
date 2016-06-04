@@ -95,10 +95,10 @@ tropas y marinería y salvaguarda de sus preciadas vidas.
 ## 1832, Estampa 2: Sinterización del wolframio, por el Illmo. Teniente Coronel José María de Alava Rodríguez Alburquerque
 
 Desde que en el año de nuestro señor de 1783 el Seminario Patriótico
-de Vergara dio a la humanidad dos nuevos metales, dos, desconocidos
+de Vergara diera a la humanidad dos nuevos metales, dos, desconocidos
 hasta entonces o confundidos con hierros o quincallas o menas diversas,
 Bergara sigue fulgurando en el firmamento de las capitales europeas,
-con todo el valle del Deba orbitando a su derredor como si de un
+con todo el valle del Deba orbitando en su derredor como si de un
 sistema planetario se tratara.
 
 Y eso sucedió porque el rey nuestro señor Carlos el Tercero de su
@@ -301,9 +301,10 @@ decir, ufanos, "Buen trabajo de un guipuzcoano es".
 ## 1866 Estampa 4: Se prueban las primeras balas con núcleo de tungsteno, por Regino de Basterrechea, para El Eco Bilbaíno
 
 En estos tiempos tenebrosos, en que el arte de matar, sin ser
-considerada una de las bellas artes, sí es un arte aplicada, hay
-precisamente que aplicarse en crear los instrumentos para hacerlo más y mejor que el que se
-encuentra enfrente con parecidas y aviesas intenciones.
+considerado una de las Bellas Artes, sí es un arte aplicada, hay
+precisamente que aplicarse en crear los instrumentos para hacerlo más
+y mejor que el que se encuentra enfrente con parecidas y aviesas
+intenciones.
 
 Porque las reglas que rigen el orbe no las escribimos los vizcaínos ni el ser humano y, en
 estos tiempos más iluminados en los que nuevos aires de libertad
@@ -396,7 +397,9 @@ igual antes de que Delhúyar dijera
 	... con el hierro crudo o colado [...] dio un boton perfecto, cuya
     fractura era compacta ...
 
-sin que esto tenga nada que ver con los proyectiles que nos ocupan,
+sin que esto tenga nada que ver con los proyectiles que nos ocupan, a
+cuyo privilegio real no hemos podido tener acceso pese a nuestra
+insistencia, 
 que son de color blanco gris, de forma como de una tubería con un a
 modo de ojiva en el extremo superior y varias estrías en el inferior,
 y muy pesadas, tanto que pareciera que algo más pesado que el plomo,
@@ -408,7 +411,7 @@ Bélgica, ya podrán ser vendidos y usados en todo el mundo, por lo que
 las fábricas de Ermua, Eibar y Guernica no darán abasto para
 proporcionar a la clientela lo que desean. 
 
-## 1873 Estampa 5: Amadeo de Saboya inaugura la exposición universal de San Sebastián, por D. Benito de Alzola y Minondo, del Diario de San Sebastián, Periódico de Noticias
+## 1873 Estampa 5: Amadeo de Saboya inaugura la exposición internacional de San Sebastián, por D. Benito de Alzola y Minondo, del Diario de San Sebastián, Periódico de Noticias
 
 Que al lector no le quepa la menor duda de que esta exposición
 universal será recordada en los años venideros como la mayor, la más
@@ -619,7 +622,7 @@ o poder evitar el quicio de una puerta, y se dio cuenta que, aparte de
 transmitir la electricidad, brillaba y emitía calor. Quedóse encima de
 las puertas como luz para los huéspedes, pero quemábase rápido.
 
-Para hacer una larga, pero curiosa, historia corta, cuando alguien
+Para hacer una larga, pero curiosa, historia, un poco más corta, cuando alguien
 leyó en la Ilustración Española y Americana sobre esas lámparas que
 venían de Prusia y de Francia se le ocurrió usar estos mismos
 imperdibles, y acabó con un anciano en Azcoitia que supo darle razón
