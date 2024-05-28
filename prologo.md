@@ -1,4 +1,4 @@
-Estampas de Historia Lógico Natural
+Estampas de la Historia Lógico Natural
 ===========
 
 La Historia Lógico Natural la introdujo Benito Pérez Galdós en sus

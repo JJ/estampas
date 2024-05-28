@@ -1,0 +1,12 @@
+#!/bin/bash
+
+pandoc -V lang=es-ES \
+       -V fontsize=16pt\
+    -V author='JJ Merelo' -V title='Estampas de la Historia Lógico Natural de Guipúzcoa'\
+    -V documentclass=scrbook\
+    --pdf-engine=xelatex \
+    -o estampas-kdp.pdf \
+    estampas.txt  prologo.md txt/texto.md   coda.txt --toc
+
+
+

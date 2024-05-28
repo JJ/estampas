@@ -1,4 +1,9 @@
-## 1783, Estampa 1: Descubrimiento del volfram por los hermanos Elhúyar. Por el Bachiller Joseph Ramos de Murúa, de Vergara
+---
+fontsize: 20pt
+---
+
+## 1783, Estampa 1:
+### Descubrimiento del volfram por los hermanos Elhúyar. Por el Bachiller Joseph Ramos de Murúa, de Vergara
 
 Teniendo todo en consideración, el año 1783 ha sido un buen año para
 la química bascongada y, por ende, la hispana. En un año, dos nuevos y
@@ -92,7 +97,8 @@ fusilería y artillería de nuestras bravas
 tropas y marinería y salvaguarda de sus preciadas vidas. 
 
 
-## 1832, Estampa 2: Sinterización del wolframio, por el Illmo. Teniente Coronel José María de Alava Rodríguez Alburquerque
+## 1832, Estampa 2: 
+### Sinterización del wolframio, por el Illmo. Teniente Coronel José María de Alava Rodríguez Alburquerque
 
 Desde que en el año de nuestro señor de 1783 el Seminario Patriótico
 de Vergara diera a la humanidad dos nuevos metales, dos, desconocidos
@@ -229,7 +235,8 @@ conozcamos y podamos contarlo, en estas páginas.
 Por eso, cuando os pregunten qué ha hecho España por Europa, sólo
 tenéis que contestar "Mi señor, ha hecho Guipúzcoa".
 
-## 1862, Estampa 3: Se inaugura la Escuela Especial de Electricidad, por Camilo Villavaso, en Irurac Bat
+## 1862, Estampa 3:
+### Se inaugura la Escuela Especial de Electricidad, por Camilo Villavaso, en Irurac Bat
 
 Y este mensaje acaba de llegar: en el momento que empiezo a escribir
 estas líneas se acaba de inaugurar la Escuela Especial de Electricidad en
@@ -297,7 +304,8 @@ una máquina herramienta movida por la electricidad, un tendido
 telegráfico erecto y orgulloso, en cualquier parte del mundo, podréis
 decir, ufanos, "Buen trabajo de un guipuzcoano es".
 
-## 1866 Estampa 4: Se prueban las primeras balas con núcleo de tungsteno, por Regino de Basterrechea, para El Eco Bilbaíno
+## 1866 Estampa 4: 
+### Se prueban las primeras balas con núcleo de tungsteno, por Regino de Basterrechea, para El Eco Bilbaíno
 
 En estos tiempos tenebrosos, en que el arte de matar, sin ser
 considerado una de las Bellas Artes, sí es un arte aplicada, hay
@@ -410,7 +418,8 @@ Bélgica, ya podrán ser vendidos y usados en todo el mundo, por lo que
 las fábricas de Ermua, Éibar y Guernica no darán abasto para
 proporcionar a la clientela lo que desean. 
 
-## 1873 Estampa 5: Amadeo de Saboya inaugura la exposición internacional de San Sebastián, por D. Benito de Alzola y Minondo, del Diario de San Sebastián, Periódico de Noticias
+## 1873 Estampa 5:
+### Su Majestad Amadeo de Saboya inaugura la exposición internacional de San Sebastián, por D. Benito de Alzola y Minondo, del Diario de San Sebastián, Periódico de Noticias
 
 Que al lector no le quepa la menor duda de que esta exposición
 universal será recordada en los años venideros como la mayor, la más
@@ -523,7 +532,8 @@ tierra bascongada, está mucho más cerca y casi podemos tocarlo con la
 punta de los dedos. 
 
 
-## 1893 Estampa 6: La Concha iluminada con bombillas de filamento de wolframio, por Serafín Baroja, para La Unión Liberal
+## 1893 Estampa 6:
+### La Concha iluminada con bombillas de filamento de wolframio, por Serafín Baroja, para La Unión Liberal
 
 Los Easonenses y paisanos del resto del señorío de Guipúzcoa se pueden considerar los seres más afortunados del
 universo, y si no, del País Vascongado. A la donosura de sus gentes,
@@ -633,7 +643,8 @@ pero que él patriota vascongado es y nunca dirá lo que sabe sobre las
 bombillas, que es mucho y variado y profundo.
 
 
-## 1895 Estampa 7: Inauguración del orbe y ferrocarril aéreo de la isla de Santa Clara, por D. Ramón de Soraluce para la revista  Euskal-Erria. 
+## 1895 Estampa 7:
+### Inauguración del orbe y ferrocarril aéreo de la isla de Santa Clara, por D. Ramón de Soraluce para la revista  Euskal-Erria. 
 
 Dícese que toda gran ciudad tiene un gran monumento que la
 identifique. Nueva York tiene su estatua de la Libertad, bien que no
@@ -705,7 +716,8 @@ todo forastero en *Gran Tour* por Europa deberá visitar, so pena de
 perderse una de las grandes maravillas del mundo.
 
 
-## 1911 Estampa 8: Vuelo inaugural del "Manuel Iradier", dirigible de línea regular San Sebastián-Santa Isabel, por Wenceslao Orbea para Novedades
+## 1911 Estampa 8:
+### Vuelo inaugural del "Manuel Iradier", dirigible de línea regular San Sebastián-Santa Isabel, por Wenceslao Orbea para Novedades
 
 Regocijémonos todos porque, desde hoy y quizás para siempre, nuestros
 compatriotas en Fernando Póo estarán más
