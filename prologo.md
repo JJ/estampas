@@ -20,7 +20,7 @@ en este ciclo, sino también sus múltiples sugerencias, que me lanzaron
 en búsqueda de todo tipo de fuentes originales, de las cuales,
 afortunadamente, hay muchas. Y agradezco a Iker Armentia sus
 correcciones y sugerencias de buscar autores para cada una de las
-piezas, que me ha permitido descubrir a muchos personajes y además,
+piezas, que me ha permitido descubrir a muchos personajes y, además,
 atar el relato al autor mucho mejor de lo que estaba antes. Aparte de
 haberme llamado la atención sobre Zumalacárregui, que me ha permitido
 ver su papel clave en la historia de esa época. 

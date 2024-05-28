@@ -179,7 +179,7 @@ astunium. El Señor de lo Más Alto tenga en su gloria al mesié Proust,
 tras fallecer, rodeado sus amigos Elhúyar y 
 Chavano, aquí, en el mismo lugar, enterrado como está no lejos de los
 crisoles y matraces que fueron su trabajo cotidiano y la gloria de
-nuestro pais, en Bergara.
+nuestro país, en Bergara.
 
 Y podría haber sido el platino, que, en siendo también francés, tiene
 en sus orígenes la buena mano del difunto Elhúyar, aunque ya se usó tiempo ha para muchos
@@ -200,13 +200,12 @@ y, desde entonces, el más liberal y querido por sus tropas, como yo
 mismo pude comprobar no hace tanto, en una visita a los barracones de
 su batallón en San Sebastián. 
 
-O quizás, olvidándonos de espadones, que no son el tema que nos ocupa,
-sería el eritronio el metal con el que harían tales imperdibles, elemento que el ínclito Manuel del Río aisló y
-que en nuestro misma cátedra de Metalurgia fue confirmado como tal,
-tras la negativa de los supuestos sabios europeos, que no veían en las
-muestras traídas de Nueva España novedad alguna, bien que no podían
-ver más allá de sus antiparras o no querían porque así se les había
-ordenado. 
+O quizás, olvidándonos de espadones, que no son el tema que nos ocupa, sería el
+eritronio el metal con el que harían tales imperdibles, elemento que el ínclito
+Manuel del Río aisló y que en nuestra misma cátedra de Metalurgia fue confirmado
+como tal, tras la negativa de los supuestos sabios europeos, que no veían en las
+muestras traídas de Nueva España novedad alguna, bien que no podían ver más allá
+de sus antiparras o no querían porque así se les había ordenado.
 
 Y bien que se pusieron, y es prodigio que merece el ensalzamiento, por
 hilar tan fino el volframio, que pareciera que hubieran creado un
@@ -408,7 +407,7 @@ el mismo astunium, entrara en su composición.
 Estando visados tales proyectiles por la fábrica, que ya realiza tal
 labor para muchas armerías de Portugal, de Francia y de la misma
 Bélgica, ya podrán ser vendidos y usados en todo el mundo, por lo que
-las fábricas de Ermua, Eibar y Guernica no darán abasto para
+las fábricas de Ermua, Éibar y Guernica no darán abasto para
 proporcionar a la clientela lo que desean. 
 
 ## 1873 Estampa 5: Amadeo de Saboya inaugura la exposición internacional de San Sebastián, por D. Benito de Alzola y Minondo, del Diario de San Sebastián, Periódico de Noticias
@@ -423,16 +422,15 @@ nuestra ciudad, aunque afortunadamente atemperado por una agradable
 brisa procedente del Cantábrico, al lado del cual se sitúa el recinto
 de la Exposición Internacional.
 
-Previamente fuimos testigos de la recepción de objetos que
-participarían en la exposición, procedente de comerciantes de toda la
-tierra Guipuzcoana, de Euscal-herria, de nuestras colonias en la
-Conchinchina, Marruecos y Guinea y de las recientemente independizadas
-república de Cuba y de Filipinas. La paz de nuestro presidente Prim y
-de nuestro soberano Amadeo de Saboya ha traído prosperidad a todas las
-Españas y todos los pueblos que de ella dependen, o dependían, y no
-hay mejor combustible que la paz para que arda el fuego de la
-imaginación y la laboriosidad que comerciantes y artesanos ponen en
-sus productos y bagatelas.
+Previamente fuimos testigos de la recepción de objetos que participarían en la
+exposición, procedente de comerciantes de toda la tierra Guipuzcoana, de
+Euscal-herria, de nuestras colonias en la Conchinchina, Marruecos y Guinea y de
+las recientemente independizadas repúblicas de Cuba y de Filipinas. La paz de
+nuestro presidente Prim y de nuestro soberano Amadeo de Saboya ha traído
+prosperidad a todas las Españas y todos los pueblos que de ella dependen, o
+dependían, y no hay mejor combustible que la paz para que arda el fuego de la
+imaginación y la laboriosidad que comerciantes y artesanos ponen en sus
+productos y bagatelas.
 
 Pero de lo que no cabe duda es que, de entre todos los prodigios que
 allí se exponen, los que causan mayor admiración son los que proceden
@@ -440,7 +438,7 @@ del valle Arriastún, que, a estas alturas de este afortunado siglo,
 alcanza ya a nuestra ciudad y al propio Bilbao, pese a hallarse a una
 distancia considerable del río Deba, distancia aminorada por los
 expresos que los unen entre sí en meras horas, como ya unen entre sí
-Azcoitia, Vergara, Eibar, Plencia, Ermua y todas las localidades de
+Azcoitia, Vergara, Éibar, Plencia, Ermua y todas las localidades de
 donde proceden los artefactos que han traído la alegría al hogar del
 vascongado y la riqueza a sus gentes.
 
@@ -466,35 +464,32 @@ con lentes que podrían dejarnos ver la luna y las estrellas como si se
 encontraran en la cumbre del Urgull.
 
 
-El Consorcio Armero del Deba, fue, sin duda, la estrella, mostrando en
-sus múltiples casetas, decoradas con carteles que proclamaban con
-arrogancia la precisión de sus productos y el éxito comercial entre el
-resto de las potencias europeas, relucientes revólveres con cachas
-bellamente repujadas, proyectiles tan plateados y brillantes como precisos y 
-fusiles que, al parecer, son capaces de disparar más lejos y penetrar
-más allá que cualquier mosquete fabricado en Seffield o en Lieja y,
-para compensar tanta letalidad, bellas telas de Vergara, damasquinados
-y las más cómodas diligencias para trasegar por caminos y carreteras
-donde el ferrocarril sea incapaz de llegar, que todavía son muchas y
+El Consorcio Armero del Deba, fue, sin duda, la estrella, mostrando en sus
+múltiples casetas, decoradas con carteles que proclamaban con arrogancia la
+precisión de sus productos y el éxito comercial entre el resto de las potencias
+europeas, relucientes revólveres con cachas bellamente repujadas, proyectiles
+tan plateados y brillantes como precisos y fusiles que, al parecer, son capaces
+de disparar más lejos y penetrar más allá que cualquier mosquete fabricado en
+Sheffield o en Lieja y, para compensar tanta letalidad, bellas telas de Vergara,
+damasquinados y las más cómodas diligencias para trasegar por caminos y
+carreteras donde el ferrocarril sea incapaz de llegar, que todavía son muchas y
 variadas en nuestra tierra.
 
-Tras el recorrido por la exhibición estática, todos nos volvimos hacia
-la Concha, donde tuvo lugar la parada naval, incluyendo los globos
-procedentes de nuestra vecina Francia, evolucionaban en el cielo de la
-Concha asustando a las aves y admirando a los paisanos. Tal desfile, entre navíos de
-muchos palos y poderosos buques de guerra de la Armada, tuvo como
-estrella el pequeño, misterioso y sigiloso sumergible del doctor
-Monturiol, dos de los cuales, recientemente adquiridos por la Armada, ya
-están operativos y navegando por sabe Dios donde. Delante de nuestros
-ojos, los dos sumergibles, Libertad e Igualdad aparecieron por babor
-de la isla de Santa Clara para aparecer por estribor, unos momentos
-más tarde. La guerras navales simuladas, que tendrán lugar más
-adelante, se podrán contemplar desde el monte Igeldo, pues tendrán
-lugar en mar abierto. Se espera que armadas de todo el orben acudan
-prestas a contemplar tal prodigio, que augura una nueva era en la que
-las batallas navales dejarán de ser los asuntos caballerosos que
-fueron en la época de nuestro Blas de Lezo para convertirse en juegos
-del escondite donde el que encuentra mata por la espalda.
+Tras el recorrido por la exhibición estática, todos nos volvimos hacia la
+Concha, donde tuvo lugar la parada naval, incluyendo los globos procedentes de
+nuestra vecina Francia, evolucionaban en el cielo de la Concha asustando a las
+aves y admirando a los paisanos. Tal desfile, entre navíos de muchos palos y
+poderosos buques de guerra de la Armada, tuvo como estrella el pequeño,
+misterioso y sigiloso sumergible del doctor Monturiol, dos de los cuales,
+recientemente adquiridos por la Armada, ya están operativos y navegando por sabe
+Dios donde. Delante de nuestros ojos, los dos sumergibles, Libertad e Igualdad
+aparecieron por babor de la isla de Santa Clara para aparecer por estribor, unos
+momentos más tarde. Las guerras navales simuladas, que tendrán lugar más
+adelante, se podrán contemplar desde el monte Igeldo, pues tendrán lugar en mar
+abierto. Se espera que armadas de todo el orbe acudan prestas a contemplar tal
+prodigio, que augura una nueva era en la que las batallas navales dejarán de ser
+los asuntos caballerosos que fueron en la época de nuestro Blas de Lezo para
+convertirse en juegos del escondite donde el que encuentra mata por la espalda.
 
 Pero "asko hil eta gutxi zerura", mueren muchos y pocos van al cielo,
 así que en tiempos difíciles como los que nos toca vivir es mejor que
@@ -505,23 +500,21 @@ Bascongada de Amigos del País, como de otras sociedades, no ha sido
 pequeño y es de ley reconocerlo aquí, en nuestras páginas, para todos
 nuestros lectores.
 
-Pero más interesante que lo que existe y se puede ver y tocar, lo que se
-muestra en la exhibición de trabajos de los estudiantes de Ingeniería
-Mecánica y Eléctrica de la Escuela de Peritos de la Universidad de
-Guipúzcoa en Vergara es el futuro, un futuro imaginado y luego llevado
-a cabo por gentes como mi hermano Pablo, un futuro lleno de luz eléctrica, de rapidez, de unión
-entre los pueblos y las gentes a través del telégrafo y quién sabe qué otras artes,
-donde se construirán torres que llegarán al cielo con metales que
-resistirán al orín y a todo tipo de empujes y donde los
-navíos metálicos, movidos por motores a vapor o quién sabe si
-eléctricos o dotados de una fuente de energía más poderosa e
-inagotable, llevarán la civilización a todos los lugares del 
-mundo, como ya sucede en Guinea y Conchinchina gracias al empeño,
-frugalidad y generosidad de nuestros granjeros e industriales
-bascongados, allí desplazados y que han vuelto brevemente para exponer
-los productos de sus exhuberantes granjas y ricas minas. Maravillas
-que, no nos cabe duda, estarán en nuestro futuro y, por ende, en el de
-toda la humanidad. 
+Pero más interesante que lo que existe y se puede ver y tocar, lo que se muestra
+en la exhibición de trabajos de los estudiantes de Ingeniería Mecánica y
+Eléctrica de la Escuela de Peritos de la Universidad de Guipúzcoa en Vergara es
+el futuro, un futuro imaginado y luego llevado a cabo por gentes como mi hermano
+Pablo, un futuro lleno de luz eléctrica, de rapidez, de unión entre los pueblos
+y las gentes a través del telégrafo y quién sabe qué otras artes, donde se
+construirán torres que llegarán al cielo con metales que resistirán al orín y a
+todo tipo de empujes y donde los navíos metálicos, movidos por motores a vapor o
+quién sabe si eléctricos o dotados de una fuente de energía más poderosa e
+inagotable, llevarán la civilización a todos los lugares del mundo, como ya
+sucede en Guinea y Conchinchina gracias al empeño, frugalidad y generosidad de
+nuestros granjeros e industriales bascongados, allí desplazados y que han vuelto
+brevemente para exponer los productos de sus exuberantes granjas y ricas
+minas. Maravillas que, no nos cabe duda, estarán en nuestro futuro y, por ende,
+en el de toda la humanidad.
 
 Pero el mayor prodigio es ver los ojos abiertos de los niños que se
 acercan a todo, tocan todo y que mientras lo hacen empiezan a imaginar
@@ -702,7 +695,7 @@ Por ello, en la cúspide del planeta, y saliendo de su polo norte, se
 puede contemplar un imperdible. Comentan los ingenieros que,
 tratándose de tal estructura metálica y por su forma apuntada, es,
 además, un eficacísimo pararrayos, así que a su función simbólica se
-le auna una eminente función práctica.
+le aúna una eminente función práctica.
 
 Meros minutos, y sólo un puñado de pesetas, separan al turista que
 pasea por la bahía de admirar desde su polo sur este orbe y
@@ -718,7 +711,7 @@ Regocijémonos todos porque, desde hoy y quizás para siempre, nuestros
 compatriotas en Fernando Póo estarán más
 cerca de nosotros gracias al dirigible de línea regular desde nuestra
 misma ciudad a Santa Isabel en esa isla, allende los mares y en la provincia
-guineana de nuestro pais, donde, como es bien sabido, los
+guineana de nuestro país, donde, como es bien sabido, los
 industriales, granjeros y mineros vascuences son, si no mayoría,
 porque no tengo las cuentas, sí los más laboriosos, probos y prósperos
 de la colonia. Y, entre ellos, mis paisanos. 
@@ -736,7 +729,7 @@ llegar a Santa Isabel, en la isla de Fernando Póo, desde donde, por
 barco o tomando otro dirigible Torque, se podrán dirigir hasta el
 continente si es que ese es su destino y así lo desean. Donde antes se
 tardaba meses enteros, ahora son sólo horas, donde antes había que sufrir las
-incomodidades de un vapor o la lentitud de un velero, ahora el comfort
+incomodidades de un vapor o la lentitud de un velero, ahora el confort
 de un wagon-lit transportado por el aire. Y todo por el mismo precio
 de un vapor. 
 
@@ -748,14 +741,15 @@ diputados, del Señor Rector de la Universidad de Guipúzcoa D. Miguel
 de Unamuno y, en lugar destacado, el señor Ingeniero Evaristo de
 Churruca.
 
-A tan sabio ingeniero vascuence, a él y al equipo de eminencias que dirige, se debe la estructura a la que los dirigibles quedan varados, una
-torre de setenta metros de altura, una pirámide que pasa de los cuarenta
-metros en la base, donde los pasajeros son recibidos amablemente,
-hasta los diez metros en la parte más elevada, donde efectivamente
-atraca el dirigible. Cuando llegamos a la inauguración, el gran globo,
-con aspecto de ballena si las ballenas flotaran en el éter, lo que no parece que vaya a suceder próximamente, y que, visto desde su proa, parece un gran
-trébol, se bamboleaba de forma indolente, esperando ser cargado con
-autoridades y curiosos, invitados a la visita que, naturalmente, no
+A tan sabio ingeniero vascuence, a él y al equipo de eminencias que dirige, se
+debe la estructura a la que los dirigibles quedan varados, una torre de setenta
+metros de altura, una pirámide que pasa de los cuarenta metros en la base, donde
+los pasajeros son recibidos amablemente, hasta los diez metros en la parte más
+elevada, donde efectivamente atraca el dirigible. Cuando llegamos a la
+inauguración, el gran globo, con aspecto de ballena si las ballenas flotaran en
+el éter, lo que no parece que vaya a suceder próximamente, y que, visto desde su
+proa, parece un gran trébol, se bamboleaba de forma indolente, esperando ser
+cargado con autoridades y curiosos, invitados a la visita que, naturalmente, no
 nos llevará hasta su destino, sino a un simple paseo por la costa.
 
 Paseo que llevó a todos cuantos pudieron ocupar las ventanas y que fue
@@ -788,15 +782,15 @@ camareros, algunos de ellos fortachones guineanos, que en bandejas
 portaban los productos de la tierra para que nosotros, en el cielo,
 ascendiéramos a alturas todavía mayores con su deglución. 
 
-Que fue, por cierto, todo el gozo que pudimos extraer el resto del
-viaje. Al llegar a Vergara, con los aires calmados y el globo volando,
-finalmente, en línea recta, nos rodearon nieblas y fumarolas diversas
-que nos impidieron ver nada durante el resto del viaje, ni el Deba, ni
-Eibar, nada de ellos se reveló ante nuestros ojos; los humos que fluían de las
-chimeneas nos impidieron ver las fábricas, y los paisanos, que nos
-consta que se habían reunido en altozanos y atalayas para ver pasar a
-nuestra nave, se tendrán que contentar con ver las hermosas imágenes
-que ilustrarán las páginas 5 a 8 de este ejemplar de Novedades. 
+Que fue, por cierto, todo el gozo que pudimos extraer el resto del viaje. Al
+llegar a Vergara, con los aires calmados y el globo volando, finalmente, en
+línea recta, nos rodearon nieblas y fumarolas diversas que nos impidieron ver
+nada durante el resto del viaje, ni el Deba, ni Éibar, nada de ellos se reveló
+ante nuestros ojos; los humos que fluían de las chimeneas nos impidieron ver las
+fábricas, y los paisanos, que nos consta que se habían reunido en altozanos y
+atalayas para ver pasar a nuestra nave, se tendrán que contentar con ver las
+hermosas imágenes que ilustrarán las páginas 5 a 8 de este ejemplar de
+Novedades.
 
 Fue en esta calma chicha cuando empezaron los discursos de los
 próceres. Aunque este cronista ha de reconocer que cayó en los brazos
