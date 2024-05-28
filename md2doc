@@ -3,7 +3,7 @@
 
 
 pandoc --toc  \
-    -o estampas.doc estampas.txt  prologo.md txt/texto.md   coda.txt
+    -o estampas.docx estampas.txt  prologo.md txt/texto.md   coda.txt
 
 
 
